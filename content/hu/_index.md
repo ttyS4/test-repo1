@@ -1,11 +1,10 @@
 ---
-title: "Kezdőlap-szöveg"
-
-description: "kezdőlaphoz tartozó leírás szövege"
+title: Kezdőlap
+description: kezdőlaphoz tartozó leírás szövege
 cascade:
-  featured_image: '/images/hegyek.jpg'
----
+  featured_image: "/images/hegyek.jpg"
 
+---
 ***„Ne félj, nem ítéllek el!”* hétvége**<br>
 
 **ABORTUSZ, MAGZATVESZTÉS lelki fájdalmak gyógyulása**
