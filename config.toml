@@ -1,0 +1,29 @@
+baseURL = "https://test-m.cstamas.hu/"
+languageCode = "hu-hu"
+title = "Ne félj, nem ítéllek el!"
+theme = "ananke"
+resourceDir = "../resources"
+
+DefaultContentLanguage = "hu"
+SectionPagesMenu = "main"
+Paginate = 3 # this is set low for demonstrating with dummy content. Set to a higher number
+enableRobotsTXT = true
+
+[languages]
+  [languages.hu]
+    title = "Ne félj, nem ítéllek el!"
+    weight = 1
+    contentDir = "content/hu"
+  [languages.en]
+    title = "In English - Ne félj, nem ítéllek el"
+    weight = 2
+    contentDir = "content/en"
+  [languages.de]
+    title = "In German - Ne félj, nem ítéllek el"
+    weight = 2
+    contentDir = "content/de"
+
+[markup]
+  [markup.goldmark]
+    [markup.goldmark.renderer]
+      unsafe = true
