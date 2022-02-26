@@ -1,7 +1,7 @@
 ---
-title: "lelki vezetők"
-date: 2022-02-22T15:48:48+01:00
-draft: false
+title: Lelki vezetők
+date: 2022-02-22T15:48:48.000+01:00
+
 ---
 KOVÁCS FERENC, állandó diakónus<br>
 
