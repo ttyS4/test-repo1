@@ -41,4 +41,4 @@ Tanúságtételek a Mária Rádióban elhangzott beszélgetéseinkből<br>
 
 2012 PAX Kiadó
 
-![img](/images/lelki_vezetok_foto_konyv.jpg)
+![](/images/lelki_vezetok_foto_konyv.jpg)
