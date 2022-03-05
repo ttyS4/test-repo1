@@ -1,6 +1,5 @@
 +++
 date = 2022-03-04T23:00:00Z
-draft = true
 title = "Fürchte dich nicht, ich verurteile dich nicht!"
 
 +++
