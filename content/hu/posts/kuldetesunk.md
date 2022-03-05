@@ -71,7 +71,7 @@ Feri&Mária <br>
 
 _A lelkigyakorlatunk alapja II. János Pál Evangelium Vitae enciklikája (IV. fejezet, 99. pont, 3. bekezdés), melyben a pápa az abortuszon átesettekhez szól._
 
-\**Az abortusz életellenes cselekedet **<br>
+**Az abortusz életellenes cselekedet** 
 
 Az élet az elsőtől az utolsó percig szent. A megfogant embrió személy, ember lesz belőle, ha hagyják élni, fejlődni, növekedni. Akár tudja valaki, hogy az abortusz bűn, akár nem, attól még utána ugyanolyan testi-lelki problémái lehetnek. A szégyen, a bűntudat, lelki szomorúság, nem a vallásosság függvénye.<br>
 
