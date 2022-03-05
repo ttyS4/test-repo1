@@ -19,7 +19,7 @@ sections:
   label: en
   create: all
   match: "**/*"
-- type: document
+- type: directory
   path: content/de
   label: de
 upload_dir: static/uploads
