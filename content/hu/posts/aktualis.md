@@ -13,8 +13,6 @@ A hétvégi lelkigyakorlaton terhedet Isten irgalmára bízhatod, nem vagy egyed
 
 A részvételnek nem feltétele a rendszeres vallásgyakorlás.
 
-[szórólap](/uploads/2022-04-28-05-01-mbesnyo-plakat.ppt)
-
 [Jelentkezéshez kattints ide](https://docs.google.com/forms/d/e/1FAIpQLSelGcU33X9XmPpw_vsGDoO09rN9m8KhA7Ym6EwkP0HtbU1ppA/viewform)
 
 Hétvégénk gyümölcseiről
