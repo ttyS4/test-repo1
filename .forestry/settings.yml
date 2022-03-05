@@ -22,7 +22,7 @@ sections:
 - type: directory
   path: content/de
   label: de
-  create: none
+  create: documents
   match: "**/*"
 upload_dir: static/uploads
 public_path: "/uploads"
