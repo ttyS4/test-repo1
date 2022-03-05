@@ -1,9 +1,8 @@
 ---
-title: "Média"
-date: 2022-02-26T13:31:26+01:00
-draft: false
----
+title: Média
+date: 2022-02-26T12:31:26+00:00
 
+---
 ![harang](harang_th.jpg)
 
 **2022\. jan. 09**
