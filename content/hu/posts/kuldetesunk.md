@@ -57,7 +57,7 @@ Az anyaság, apaság érzését az Isten a szívünkbe ültette. Egy ideig el le
 
 Az abortuszt követő fájdalom nem a vallásos érzelmek függvénye. Fontos szembenézni tetteinkkel, mely nehéz, de első lépés az őszinte bűnbánat felé. Ezt követő megbocsátás, mások és önmagunk felé nyitja meg az utat a megsebzett szív békéje, megnyugvása felé.<br>
 
-Ez egy életátgondolást szolgáló lelkigyakorlat, ahol megtapasztalhatják a résztvevők, hogy Isten irgalmas szeretetéből van gyógyulás és újrakezdés még ebben a szégyellni való és tabunak tekintett helyzetben is, épp ezért nem feltétele a részvételnek a rendszeres vallásgyakorlat.<br>
+Ez egy életátgondolást szolgáló lelkigyakorlat, ahol megtapasztalhatják a résztvevők, hogy Isten irgalmas szeretetéből van gyógyulás és újrakezdés még ebben a szégyellni való és tabunak tekintett helyzetben is, épp ezért nem feltétele a részvételnek a rendszeres vallásgyakorlat.
 
 Feri&Mária <br>
 
