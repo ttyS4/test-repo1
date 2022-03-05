@@ -3,13 +3,9 @@ date = 2022-03-04T23:00:00Z
 title = "Fürchte dich nicht, ich verurteile dich nicht!"
 
 +++
-**Weg aus dem Schmerz der Abtreibung**
+## **Weg aus dem Schmerz der Abtreibung**
 
-**Heilungs-, Neuevangelisierungs-, Missionswochenende**
-
-**in der Gemeinschaft Emmanuel in Ungarn**
-
-**Abtreibung ist eine Tat gegen das Leben**
+### **Abtreibung ist eine Tat gegen das Leben**
 
 Das Leben ist heilig, von der ersten bis zur letzten Minute. Der empfangene Embryo ist eine Person, wird zum Menschen, lebt und wächst, wenn man es zulässt. Ob jemand darüber Bescheid weiß oder nicht, dass Abtreibung eine Sünde ist, kann es nachher die gleichen körperlichen-geistlichen Probleme verursachen. Scham, Schuldbewusstsein, geistliche Traurigkeit – all das hängt nicht von der Religiosität ab.
 
@@ -53,3 +49,5 @@ _Mitglieder der Jesus Brüderschaft_ der GEMEINSCHAFT EMMANUEL
 Webseite: [www.magzatlap.hu](http://www.magzatlap.hu/)
 
 E-mail: [nefeljnemitellekel@gmail.c](mailto:nefeljnemitellekel@gmail.com)om
+
+> Heilungs-, Neuevangelisierungs-, Missionswochenende in der Gemeinschaft Emmanuel in Ungarn
