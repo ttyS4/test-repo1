@@ -14,12 +14,16 @@ sections:
   label: hu
   create: all
   match: "**/*"
-- type: document
-  path: content/en/**/*
+- type: directory
+  path: content/en
   label: en
+  create: all
+  match: "**/*"
 - type: document
-  path: content/de/**/*
+  path: content/de
   label: de
+  create: all
+  match: "**/*"
 upload_dir: static/uploads
 public_path: "/uploads"
 front_matter_path: ''
