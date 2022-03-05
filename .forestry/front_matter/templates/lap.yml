@@ -11,3 +11,4 @@ fields:
   label: date
 pages:
 - content/hu/posts/mariferi.md
+- content/hu/xyz.md
