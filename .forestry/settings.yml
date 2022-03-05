@@ -22,6 +22,8 @@ sections:
 - type: directory
   path: content/de
   label: de
+  create: none
+  match: "**/*"
 upload_dir: static/uploads
 public_path: "/uploads"
 front_matter_path: ''
