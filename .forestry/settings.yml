@@ -17,11 +17,9 @@ sections:
 - type: document
   path: content/en/**/*
   label: en
-  match: "**/*"
 - type: document
   path: content/de/**/*
   label: de
-  match: "**/*"
 upload_dir: static/uploads
 public_path: "/uploads"
 front_matter_path: ''
