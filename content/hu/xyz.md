@@ -1,6 +1,6 @@
 +++
 date = ""
 draft = true
-title = "xyz"
+title = ""
 
 +++
