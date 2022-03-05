@@ -4,11 +4,7 @@ draft = true
 title = "Fürchte dich nicht, ich verurteile dich nicht!"
 
 +++
-**Fürchte dich nicht,**
-
-**ich verurteile dich nicht!**
-
-**– Weg aus dem Schmerz der Abtreibung**
+**Weg aus dem Schmerz der Abtreibung**
 
 **Heilungs-, Neuevangelisierungs-, Missionswochenende**
 
@@ -40,12 +36,10 @@ Bekenntnisse einiger Teilnehmer:
 
 * „_Nach meiner Abtreibung war ich unfähig, meine Prüfungen an der Hochschule abzulegen. Ich gab es auf. Ich wurde mit Depression behandelt, doch blieb die Selbstkasteiung. Jetzt meldete ich mich wieder zu einer – zwar anderen – Ausbildung, die mich interessiert. Hoffentlich werde ich nun nicht vor der Prüfung zurückweichen.”_
 * „_Ich hielt mich selber für nicht geeignet, die meiner Qualifikation entsprechende Arbeit zu übernehmen. Stattdessen arbeitete ich als Assistentin. Jetzt bin ich schon Ärztin und kann anderen helfen.”_
-
-
 * „_Zuerst fürchtete ich mich, meinen Töchtern zu sagen, dass sie noch Geschwistern haben könnten. Ich hatte Angst, sie würden mich deswegen abschätzen, verurteilen. Ich bat sie, nie zu tun, was ich getan hatte, sollten sie in Schwierigkeiten geraten, werde ich ihnen helfen. Ich will nicht behaupten, dass sie mich gelobt hätten, jedoch wurde unsere Beziehung aufrichtiger.”_
 * „_Mit 40 Jahren fing ich mit dem Religionsunterricht an und nahm die Erstkommunion.”_
 * „_Ich fand „den Richtigen”, wir haben uns kirchlich getraut. Die Frustration, das Gefühl von „alles ist eins“ ist weg. Anders, als das Zusammenleben, das nur für den aktuellen Tag gilt. Man kann auf den anderen rechnen. Das gibt ein Gefühl der Sicherheit.”_
-* ![](file:///C:/Users/User/AppData/Local/Temp/lu10248u93ekl.tmp/lu10248u93ekv_tmp_d7b90a5522044dee.jpg =195x145) „_Aus zwei verschiedenen Beziehungen habe ich zwei Söhne im Teenager-Alter. Mit meinem jetzigen Lebensgefährten leben wir sein 5 Jahren zusammen, doch kam das ersehnte Kind nicht. Ich meinte, das Schicksal hätte mich gestraft, weil ich in meiner Jugend die kleinen Ankömmlinge nicht aufgenommen hatte. Nach dem Wochen-ende habe ich mit 42 Jahren meine Tochter empfangen. Wir sind glücklich.”_
+* !\[\](file:///C:/Users/User/AppData/Local/Temp/lu10248u93ekl.tmp/lu10248u93ekv_tmp_d7b90a5522044dee.jpg =195x145) „_Aus zwei verschiedenen Beziehungen habe ich zwei Söhne im Teenager-Alter. Mit meinem jetzigen Lebensgefährten leben wir sein 5 Jahren zusammen, doch kam das ersehnte Kind nicht. Ich meinte, das Schicksal hätte mich gestraft, weil ich in meiner Jugend die kleinen Ankömmlinge nicht aufgenommen hatte. Nach dem Wochen-ende habe ich mit 42 Jahren meine Tochter empfangen. Wir sind glücklich.”_
 
 **Foto: gyertyatarto\[1\]**
 
