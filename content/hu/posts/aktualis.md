@@ -3,19 +3,29 @@ title: Aktuális
 date: 2022-02-20T17:30:26.000+01:00
 
 ---
-Ne sírj, ne bánkódj! Ne félj, nem ítéllek el….!
+###   **_![](/uploads/123856309_3360492900665287_137892684770167792_n.jpg)               _**
 
-Megfogant benned egy kis élet és nem tudsz dönteni – van kiút!
+###  **_Ne félj, nem ítéllek el!_**  
 
-Abortuszod volt és még mindig bánt - van rá orvosság!
+###                         **_Ne sírj, ne bánkódj!_**
 
-A hétvégi lelkigyakorlaton terhedet Isten irgalmára bízhatod, nem vagy egyedül: gyógyulhat a bűntudat és fájdalom, van mindig megoldás!
+Megfogant benned egy kis élet és nem tudsz dönteni – _van kiút!_
 
-A részvételnek nem feltétele a rendszeres vallásgyakorlás.
+Abortuszod volt és még mindig bánt - _van rá orvosság!_
+
+Tanácsot adtam, hogy az abortusz megoldás lesz az életére - _van megbocsátás!_
+
+Vetélésed lelki fájdalma nem múlik? - van segítség!
+
+Nem szülhetted meg "lombik babádat"? - _ő is a gyermeked!_
+
+_A hétvégi lelkigyakorlaton terhedet Isten irgalmára bízhatod, nem vagy egyedül: gyógyulhat a bűntudat és fájdalom, van mindig megoldás!_
+
+_A részvételnek nem feltétele a rendszeres vallásgyakorlás._
 
 [Jelentkezéshez kattints ide](https://docs.google.com/forms/d/e/1FAIpQLSelGcU33X9XmPpw_vsGDoO09rN9m8KhA7Ym6EwkP0HtbU1ppA/viewform)
 
-Hétvégénk gyümölcseiről
+####  **![](/uploads/20190414_170518.jpg)                                     Hétvégénk gyümölcseiről**
 
 A magzatvesztés, akár az abortusz, akár a vetélés olyan lelki fájdalmat okozó gyászreakciót vált ki az érintettekből, amiről nem szokás, nem „illik” beszélni.
 
@@ -35,12 +45,12 @@ Megosztjuk néhány testvér vallomását:
 
 Lehet, hogy eddig soha nem tudtál történeteddel szembenézni, fájdalmad magadba zártad.
 
-Itt a kellő idő!
+#### Itt a kellő idő!
 
 Szeretettel hívunk team tagjainkkal együtt gyógyító kurzusunkra:
 
 Mária és Feri
 
-Kattintás a szórólapra/plakátra
+![](/uploads/2022-04-28-05-1_mariabesnyo.png)
 
 [Jelentkezéshez kattints ide](https://docs.google.com/forms/d/e/1FAIpQLSelGcU33X9XmPpw_vsGDoO09rN9m8KhA7Ym6EwkP0HtbU1ppA/viewform)
