@@ -5,7 +5,7 @@ cascade:
   featured_image: "/images/hegyek.jpg"
 
 ---
-***„Ne félj, nem ítéllek el!”* hétvége**<br>
+**_„Ne félj, nem ítéllek el!”_ hétvége**
 
 **ABORTUSZ, MAGZATVESZTÉS lelki fájdalmak gyógyulása**
 
@@ -13,15 +13,15 @@ cascade:
 
 **Abortusz, vetélés, a gyermek halva születése**, … mind olyan mély seb, ami akadályozhatja, hogy derűs, kiegyensúlyozott életet élj. Lehet, hogy friss, lehet, hogy már régen történt, de elő - előtör és nem találod a lelki békédet.
 
-Tapasztalod a következményeit: önértékelési válság, bűntudat, harag, kapcsolati nehézségek, depresszió… <br>
+Tapasztalod a következményeit önértékelési válság, bűntudat, harag, kapcsolati nehézségek, depresszió… 
 
-Egy ideig el lehet némítani a szív hangját, ez akár évtizedekig is eltarthat, de valamilyen krízis az életedben előhozza az elfeledettnek gondolt traumát. <br>
+Egy ideig el lehet némítani a szív hangját, ez akár évtizedekig is eltarthat, de valamilyen krízis az életedben előhozza az elfeledettnek gondolt traumát. 
 
-**Ne cipeld tovább ezt a terhet!**<br>
+**Ne cipeld tovább ezt a terhet!**
 
-Az elmúlt évtized alatt sokak élete megváltozott ezeken a sorstársak körében eltöltött hétvégéken. <br>
+Az elmúlt évtized alatt sokak élete megváltozott ezeken a sorstársak körében eltöltött hétvégéken. 
 
-**Hétvégénk lelki ajándékai**<br>
+**Hétvégénk lelki ajándékai**
 
 A lelkigyakorlat végén megkérdezzük a résztvevőket, mi változott meg a szívükben a három nap alatt?<br>
 
