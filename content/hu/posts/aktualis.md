@@ -3,8 +3,9 @@ title: Aktuális
 date: 2022-02-20T17:30:26.000+01:00
 
 ---
-### **  
-![](/uploads/2008julius-116.jpg)            _Ne félj, nem ítéllek el!_**
+### **![](/uploads/2008julius-116.jpg)           **
+
+### **_Ne félj, nem ítéllek el!_**
 
 ### **_Ne sírj, ne bánkódj!_**
 
