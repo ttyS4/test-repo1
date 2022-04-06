@@ -67,9 +67,11 @@ Vannak, akik azt mondják: többször meggyóntam, és semmi sem változott. De 
 
 A kanadai Ney-házaspár kiterjedt vizsgálatokat végzett e témakörben. Szerintük az abortusz utáni pszichés állapot leginkább a gyászfeldolgozás fázisaihoz hasonlítható, de attól eltérő jellegzetessége is van. Ha meghal egy rokonunk, egyértelmű a gyászfolyamat. De az abortusz után _olyan, mintha nem történt volna semmi_: Nincs temetés, gyászolni sem "illik."
 
-Az anyaság, apaság érzését az Isten a szívünkbe ültette. Egy ideig el lehet némítani a szív hangját, ez 20-30 évig is eltarthat, de egy traumatikus esemény, szülés, vetélés, álom, gyász, válás, baleset, öregedés vagy valamilyen krízis az életében előhozza az elfeledettnek gondolt múltat.
+**Az anyaság, apaság érzését az Isten a szívünkbe ültette. Egy ideig el lehet némítani a szív hangját, ez 20-30 évig is eltarthat, de egy traumatikus esemény, szülés, vetélés, álom, gyász, válás, baleset, öregedés vagy valamilyen krízis az életében előhozza az elfeledettnek gondolt múltat.**
 
 Az abortuszt követő fájdalom nem a vallásos érzelmek függvénye. Fontos őszintén szembenézni tetteinkkel, mely nehéz, de kikerülhetetlen lépés a lélek gyógyulásához. Ezt követi a  megbocsátás, mások és önmagunk felé. Ezután kaphatjuk meg szívünkbe a vágyott békességet, és örömteli életet élhetünk.
+
+kép
 
 ![újratervezés, gps](/images/ujratervezes-gps.jpg)
 
@@ -85,7 +87,7 @@ Az abortuszt követő fájdalom nem a vallásos érzelmek függvénye. Fontos ő
 
 ##### - Megtapasztalhatják, hogy Isten irgalmas szeretetéből van gyógyulás és újrakezdés.
 
-##### - Megélhetik azt a boldogító érzést, hogy Önök édesanyák és édesapák.
+##### - Megélhetik azt a boldogító érzést, hogy Önök édesanyák és édesapák!
 
 ##### - A részvételnek _nem_ feltétele  a rendszeres vallásgyakorlat.
 
