@@ -6,9 +6,9 @@ title = "teszt oldal egy"
 +++
 ![](/uploads/236119006_309811004265737_8324925701847262768_n.jpg)
 
-#### **Fear not, i won’t judge you!**
+### **Fear not, i won’t judge you!**
 
-#### **– a way out of the pain of abortion**
+### **– a way out of the pain of abortion**
 
 ###### Healing, re-evangelizing weekend of mission by the Hungarian Emmanuel Community
 
@@ -38,6 +38,10 @@ Participants experienced that healing is possible, that they can start over even
 * “At the age of forty, I started attending Bible classes and had my First Communion. “
 * “I found Mr. Right and we got married in a church. My frustration and the feeling that nothing matters both stopped. Our marriage is nothing like my past insecure relationships. We can lean on each other. It makes me feel safe. “
 * “I have two teenage boys from two different relationships. My current partner and I’ve been together for 5 years, but no matter how hard we tried, we could not have a baby. I felt like the universe was punishing me for the babies I had given up when I was younger. After the weekend, at the age of 42, our daughter was conceived. We are so happy! “
+
+![](/uploads/125381237_3383106508403926_3021977328333782542_n.jpg)
+
+_Our retreat is based on Evangelium Vitae, the encyclical of Pope Saint John Paul II (Chapter IV. Point 99. Paragraph 3.), in which the Pope speaks to those affected by abortion._
 
 The leaders of this retreat are members of the EMMANUEL COMMUNITY Fraternity:
 
