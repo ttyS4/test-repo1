@@ -48,8 +48,10 @@ Maria Kovács-Treer, Mentalhygiene-Seelsorgerin _und Ferenc Kovács, Diakon,_
 
 _Mitglieder der Jesus Brüderschaft_ der GEMEINSCHAFT EMMANUEL
 
+Heilungs-, Neuevangelisierungs-, Missionswochenende in der Gemeinschaft Emmanuel in Ungarn
+
 Webseite: [www.magzatlap.hu](http://www.magzatlap.hu/)
 
 E-mail: [nefeljnemitellekel@gmail.c](mailto:nefeljnemitellekel@gmail.com)om
 
-> Heilungs-, Neuevangelisierungs-, Missionswochenende in der Gemeinschaft Emmanuel in Ungarn
+> 
