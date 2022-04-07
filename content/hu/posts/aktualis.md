@@ -25,11 +25,13 @@ _A részvételnek nem feltétele a rendszeres vallásgyakorlás._
 
 [Jelentkezéshez kattints ide](https://docs.google.com/forms/d/e/1FAIpQLSelGcU33X9XmPpw_vsGDoO09rN9m8KhA7Ym6EwkP0HtbU1ppA/viewform)
 
-#### **![](/uploads/71144982_2350512884996632_4872907544277811200_n.jpg)                   **Itt a kellő idő!                 
+#### 
+
+##### ![](/uploads/71144982_2350512884996632_4872907544277811200_n.jpg)                  Itt a kellő idő!
 
 Lehet, hogy eddig soha nem tudtál történeteddel szembenézni, fájdalmad magadba zártad.
 
-###  
+Hang 2020_hétvége_wma
 
 Szeretettel hívunk team tagjainkkal együtt gyógyító kurzusunkra:
 
