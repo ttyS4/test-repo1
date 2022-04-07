@@ -9,9 +9,9 @@ date: 2022-02-21T21:26:19.000+01:00
 
 ![](/uploads/200758745_3956816277699610_8032290643553669935_n-masolata.jpg)
 
-#### **VAN GYÓGYULÁS**
+## **_VAN GYÓGYULÁS_**
 
-#### **A  MAGZATVESZTÉST KÖVETŐ FÁJDALOMBÓL**
+#### **_A  MAGZATVESZTÉST KÖVETŐ FÁJDALOMBÓL!_**
 
 Az élet az elsőtől az utolsó percig szent. A megfogant embrió személy, ember lesz belőle, ha hagyják élni, fejlődni, növekedni. Akár tudja valaki, hogy az abortusz bűn, akár nem, attól még utána ugyanolyan testi-lelki problémái lehetnek. A szégyen, a bűntudat, lelki szomorúság, nem a vallásosság függvénye.
 
@@ -55,7 +55,7 @@ Vannak, akik azt mondják: többször meggyóntam, és semmi sem változott. De 
 
 • **Depresszió, öngyilkossági kísérlet**. A British Journal of Psychiatry című brit szaklapban megjelent átfogó tanulmány szerint az abortuszon átesett nőknél 81 százalékkal magasabb a pszichiátriai megbetegedések kialakulásának esélye.
 
-• **Alvászavarok, rémálmok**; ismerünk valakit, aki 20 éven át minden éjjel álmában megszülte a gyermekét. egy pszichiátriai klinikán  elmondták, hogy a nők 13%-nak szerepel az előzményében az abortusz.
+• **Alvászavarok, rémálmok**; ismerünk valakit, aki 20 éven át minden éjjel álmában megszülte a gyermekét. egy pszichiátriai klinikán  elmondták, hogy a nők 13%-ának szerepel az előzményében az abortusz.
 
 • **Alkoholizmus, drog,** hogy tudjon feledni.
 
@@ -63,7 +63,7 @@ Vannak, akik azt mondják: többször meggyóntam, és semmi sem változott. De 
 
 • **Évfordulós krízis:** AB napja, a meg nem történt szülés időpontja előhozza a lelki fájdalmat.
 
-##### **💔 Abortusz utáni „elakadt” gyászfolyamat**
+##### **💔 Abortusz után „elakadt” gyászfolyamat**
 
 A kanadai Ney-házaspár kiterjedt vizsgálatokat végzett e témakörben. Szerintük az abortusz utáni pszichés állapot leginkább a gyászfeldolgozás fázisaihoz hasonlítható, de attól eltérő jellegzetessége is van. Ha meghal egy rokonunk, egyértelmű a gyászfolyamat. De az abortusz után _olyan, mintha nem történt volna semmi_: Nincs temetés, gyászolni sem "illik."
 
@@ -85,7 +85,7 @@ Az abortuszt követő fájdalom nem a vallásos érzelmek függvénye. Fontos ő
 
 ##### 🙂 Megtapasztalhatják, hogy Isten irgalmas szeretetéből van gyógyulás és újrakezdés.
 
-#####  💖Megélhetik azt a boldogító érzést, hogy Önök édesanyák és édesapák!
+##### 💖Megélhetik azt a boldogító érzést, hogy Önök édesanyák és édesapák!
 
 ##### ✔ A részvételnek _nem_ feltétele  a rendszeres vallásgyakorlat.
 
