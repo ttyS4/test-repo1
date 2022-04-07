@@ -4,7 +4,8 @@ draft = true
 title = "TANÚSÁGTÉTELEK"
 
 +++
-#### **Egy négy gyermekes édesanya vallomása**
+
+### **💖 Négy gyermekes édesanya vallomása**
 
 Három felnőtt gyermekem van és egy kis unokám. 24 évvel ezelőtt pedig sajnos nem az élet mellett döntöttem. Amikor elmentem az orvoshoz, hogy vizsgáljon meg, kiderült, hogy a baba már 12. hetes. Nagyon megijedtem, nem gondoltam, hogy ez lehetséges, nagyon ritkán éltünk házaséletet, mert a házasságom romokban állt.
 
@@ -38,3 +39,25 @@ Hála van a szívemben, hogy a majdnem negyedszázadon át hurcolt nehéz lelki 
 
 ![](/uploads/szabad-vagyok.jpg)  
 Fotó: Szabad_vagyok
+
+***
+
+#### 
+
+### **💖 NIKI vallomása**
+
+_"Egy labilis kapcsolatban nem mertem bevállalni egy babát._
+
+_Ez volt az életemben az első abortuszom._ 
+
+_Ez olyan rosszul hangzik._
+
+_Ha azt mondom, hogy első, akkor lesz itt még több is……."_
+
+Hangfelvétel, kattints a linkre:
+
+[https://hangtar.mariaradio.hu/media/ne_felj_nem_itellek_el/2021.06.01_21-05-ne_felj_nem_itellek_el.mp3](https://hangtar.mariaradio.hu/media/ne_felj_nem_itellek_el/2021.06.01_21-05-ne_felj_nem_itellek_el.mp3 "https://hangtar.mariaradio.hu/media/ne_felj_nem_itellek_el/2021.06.01_21-05-ne_felj_nem_itellek_el.mp3")
+
+42 éves korában „_baba-projekt_” kudarcok után megszületett NIKI vágyott kislánya.
+
+![](/uploads/megszuletett.jpg)
