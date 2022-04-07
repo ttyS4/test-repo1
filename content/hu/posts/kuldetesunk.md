@@ -3,7 +3,7 @@ title: Küldetésünk
 date: 2022-02-21T21:26:19.000+01:00
 
 ---
-### **_Ne félj, nem ítéllek el!_**
+## **_Ne félj, nem ítéllek el!_**
 
 ##### Hétvégénk után több száz érintett nő és férfi tanúsítja:
 
@@ -15,11 +15,11 @@ date: 2022-02-21T21:26:19.000+01:00
 
 Az élet az elsőtől az utolsó percig szent. A megfogant embrió személy, ember lesz belőle, ha hagyják élni, fejlődni, növekedni. Akár tudja valaki, hogy az abortusz bűn, akár nem, attól még utána ugyanolyan testi-lelki problémái lehetnek. A szégyen, a bűntudat, lelki szomorúság, nem a vallásosság függvénye.
 
-**Van gyógyulás Isten irgalmas szeretetéből**
+##### **💔 Van gyógyulás Isten irgalmas szeretetéből**
 
 Egy ideig el lehet némítani a szív hangját, ez akár évtizedekig is eltarthat, de valamilyen krízis az illető életében előhozza az elfeledettnek gondolt traumát: várandóság, szülés, vetélés, a klimax, gyász, válás, betegség, baleset. Ekkor elemi erővel előtör a fájdalom. Harag, vád ébred a nőben mindazokkal szemben, akik rábeszélték, akik nem segítettek nehéz helyzetében. Fáj, hogy senki nem mondta neki: „_ne tedd_!”. Istennel szemben sem ritka a neheztelés: _„ha szeret, ezt miért nem akadályozta meg az életemben”_.
 
-**Abortuszt testi-lelki presszió előzi meg**
+##### **💔 Abortuszt testi-lelki presszió előzi meg**
 
 Sem a nő, sem a férfi nem úgy gondolja, hogy a családtervezést majd abortusszal oldja meg. Felelőtlenség kérdése olykor felmerül, de ha megtörtént az abortusz, csak a tanulságait érdemes végig gondolni.
 
@@ -27,21 +27,21 @@ Az a tapasztalatunk, hogy az abortuszon áteső nők döntő többségben valami
 
 Persze attól még, hogy tudva vagy tudatlanul követik el, a káros következmények megjelennek. Akár tudja valaki, hogy az abortusz bűn, akár nem, attól még utána ugyanolyan testi-lelki problémái lehetnek.
 
-**💔 Abortusz utáni testi - lelki tünetek**
+##### **💔 Abortusz utáni testi - lelki tünetek**
 
 Sokak szerint nem kell ezt túldimenzionálni, nincsenek igazi problémák abortusz után. Testi tünetek is vannak, mi inkább a lelki következményekkel foglalkozunk. M. Simon würtzburgi pszichológus szerint a nők 80 százaléka szenved az abortusz után a mentális egészség megromlása miatt.
 
 Tény, hogy vannak, akiknek, egy darabig nem okoz gondot, de mi nem velük foglalkozunk. _Senkit nem ítélünk el, és nem akarunk senkinek a lelkiismerete lenni a magáé helyett._
 
-**💔 Bűntudat – lelki szomorúság**
+##### **💔 Bűntudat – lelki szomorúság**
 
 A bűntudat – vallási kifejezés helyett inkább így fogalmaznék: lelki szomorúság. Sokkal többeknek van _bűntudat érzése_, mint ahányan vallásosak. A szakdolgozatomban vizsgált nők 66 százaléka beszélt a _bűntudat érzéséről_, de csak 20 százalékuk mondta magát vallásosnak. Sokan úgy élik meg, hogy a vetélés, meddőség, vagy a kudarc az életükben az Isten büntetése. Az isteni büntetés érzése akkor is előjön, ha valaki nem igazán vallásos, csak akkor esetleg a „sors” büntetésének nevezi.
 
-**Önmagamnak a legnehezebb megbocsátani**
+##### **💔 Önmagamnak a legnehezebb megbocsátani**
 
 Vannak, akik azt mondják: többször meggyóntam, és semmi sem változott. De hát miért? Isten elsőre is megbocsát! Ebben is sokat segít a hétvégén való részvétel.
 
-**💔 Tünetek sokfélék, időben változóan jelentkeznek**
+##### **💔 Tünetek sokfélék, időben változóan jelentkeznek**
 
 • **Szorongás**, rettegés, indokolatlan sírógörcs, labilitás
 
@@ -63,7 +63,7 @@ Vannak, akik azt mondják: többször meggyóntam, és semmi sem változott. De 
 
 • **Évfordulós krízis:** AB napja, a meg nem történt szülés időpontja előhozza a lelki fájdalmat.
 
-**💔 Abortusz utáni pszichés állapot: „elakadt” gyászfolyamat**
+##### **💔 Abortusz utáni „elakadt” gyászfolyamat**
 
 A kanadai Ney-házaspár kiterjedt vizsgálatokat végzett e témakörben. Szerintük az abortusz utáni pszichés állapot leginkább a gyászfeldolgozás fázisaihoz hasonlítható, de attól eltérő jellegzetessége is van. Ha meghal egy rokonunk, egyértelmű a gyászfolyamat. De az abortusz után _olyan, mintha nem történt volna semmi_: Nincs temetés, gyászolni sem "illik."
 
@@ -71,29 +71,27 @@ A kanadai Ney-házaspár kiterjedt vizsgálatokat végzett e témakörben. Szeri
 
 Az abortuszt követő fájdalom nem a vallásos érzelmek függvénye. Fontos őszintén szembenézni tetteinkkel, mely nehéz, de kikerülhetetlen lépés a lélek gyógyulásához. Ezt követi a  megbocsátás, mások és önmagunk felé. Ezután kaphatjuk meg szívünkbe a vágyott békességet, és örömteli életet élhetünk.
 
-kép
-
 ![újratervezés, gps](/images/ujratervezes-gps.jpg)
 
 ### **_Ne félj, nem ítéllek el!_** hétvégén:
 
-##### - Gyász és veszteség feldolgozás történik.
+##### 😥 Gyász és veszteség feldolgozás történik.
 
-##### - Sorstársi közösségben Ön rádöbbenhet, nincs egyedül.
+##### 👪 Sorstársi közösségben Ön rádöbbenhet, nincs egyedül.
 
-##### - Korábbi résztvevők elmondják gyógyulásuk történetét.
+##### 🤦‍♀️ Korábbi résztvevők elmondják gyógyulásuk történetét.
 
-##### - Személyes lelki beszélgetések segítik az életátgondolást.
+##### 💕 Személyes lelki beszélgetések segítik az életátgondolást.
 
-##### - Megtapasztalhatják, hogy Isten irgalmas szeretetéből van gyógyulás és újrakezdés.
+##### 🙂 Megtapasztalhatják, hogy Isten irgalmas szeretetéből van gyógyulás és újrakezdés.
 
-##### - Megélhetik azt a boldogító érzést, hogy Önök édesanyák és édesapák!
+#####  💖Megélhetik azt a boldogító érzést, hogy Önök édesanyák és édesapák!
 
-##### - A részvételnek _nem_ feltétele  a rendszeres vallásgyakorlat.
+##### ✔ A részvételnek _nem_ feltétele  a rendszeres vallásgyakorlat.
 
 ![](/uploads/20190414_170518.jpg)
 
-**_NE FÉLJ, NEM ÍTÉLLEK EL!_ hétvégéink gyümölcsei:**
+##### **_NE FÉLJ, NEM ÍTÉLLEK EL!_ hétvégéink gyümölcsei:**
 
 A résztvevőink megtapasztalták, hogy van gyógyulás, lehetséges az újrakezdés még ebben a szégyellni való és tabunak tekintett helyzetben is. Az Istennel, másokkal, önmagával való megbékélést hitbeli megújulás követheti. A részvételnek ezért sem feltétele a rendszeres vallásgyakorlat. Néhány résztvevő vallomása:
 
@@ -101,19 +99,17 @@ A résztvevőink megtapasztalták, hogy van gyógyulás, lehetséges az újrakez
 
 _🩺„Úgy gondoltam, nem vagyok alkalmas, hogy végzettségem szerinti munkát végezzek. Asszisztensként dolgoztam. Ma már orvos vagyok, tudok segíteni másoknak.”_
 
-🌼_„Először féltem megmondani lányaimnak, hogy lehetne még testvérük. Tartottam attól, hogy lenéznek, megítélnek miatta. Kértem, soha ne tegyék, amit én, ha bajba kerülnek, segítek. Nem mondom, hogy megdicsértek érte, de kapcsolatunk őszintébb lett.”_
+🌼 „Először féltem megmondani lányaimnak, hogy lehetne még testvérük. Tartottam attól, hogy lenéznek, megítélnek miatta. Kértem, soha ne tegyék, amit én, ha bajba kerülnek, segítek. Nem mondom, hogy megdicsértek érte, de kapcsolatunk őszintébb lett.”_
 
-✝_„40 évesen elkezdtem hittanra járni, elsőáldozó lettem.”_
+✝ „40 évesen elkezdtem hittanra járni, elsőáldozó lettem.”_
 
 ⛪ _„Megtaláltam az „igazit”, egyházi házasságot kötöttünk. Megszűnt a frusztráció, a „minden mindegy” érzés. Más, mint a csak arra a napra igaz együttélés. Lehet egymásra számítani. Ez biztonságérzetet ad.”_
 
 👩 _„Kétféle kapcsolatból két kamasz fiam van. A jelenlegi élettársammal 5 éve élünk együtt, de a várt baba nem jött. Úgy éreztem, a Sors megbüntetett, hogy nem fogadtam el fiatalon az érkezőket. A hétvége után 42 évesen megfogant kislányom. Boldogok vagyunk.”_
 
-Tisztelettel köszöntjük: Mária&Ferenc
+###### ![](/uploads/125381237_3383106508403926_3021977328333782542_n.jpg)             A lelkigyakorlatunk alapja
 
-##### ![](/uploads/123856309_3360492900665287_137892684770167792_n.jpg)A lelkigyakorlatunk alapja
-
-II. János Pál Evangelium Vitae enciklikája (IV. fejezet, 99. pont, 3. bekezdés), melyben a pápa az abortuszon átesettekhez szól.
+II. János Pál Evangelium Vitae enciklikája ( IV. fejezet, 99. pont, 3. bekezdés), melyben a pápa az abortuszon átesettekhez szól.
 
 Honlapunk: [www.magzatlap.hu](http://www.magzatlap.hu)
 
