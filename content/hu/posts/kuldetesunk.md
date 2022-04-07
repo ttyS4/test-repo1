@@ -101,7 +101,7 @@ _🩺„Úgy gondoltam, nem vagyok alkalmas, hogy végzettségem szerinti munká
 
 🌼 „Először féltem megmondani lányaimnak, hogy lehetne még testvérük. Tartottam attól, hogy lenéznek, megítélnek miatta. Kértem, soha ne tegyék, amit én, ha bajba kerülnek, segítek. Nem mondom, hogy megdicsértek érte, de kapcsolatunk őszintébb lett.”_
 
-✝ „40 évesen elkezdtem hittanra járni, elsőáldozó lettem.”_
+✝ „40 évesen elkezdtem hittanra járni, elsőáldozó lettem.”
 
 ⛪ _„Megtaláltam az „igazit”, egyházi házasságot kötöttünk. Megszűnt a frusztráció, a „minden mindegy” érzés. Más, mint a csak arra a napra igaz együttélés. Lehet egymásra számítani. Ez biztonságérzetet ad.”_
 
