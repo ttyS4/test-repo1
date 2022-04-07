@@ -10,8 +10,6 @@ title = "teszt oldal egy"
 
 ### **– a way out of the pain of abortion**
 
-###### Healing, re-evangelizing weekend of mission by the Hungarian Emmanuel Community
-
 **Abortion is an act against life**
 
 Life is sacred. From the first moment to the last. Once it’s conceived, an embryo is a person. If they are allowed to live, to grow, to shape, they become individuals. Whether or not you know abortion is a sin, you will suffer spiritual and physical consequences. Shame, guilt, inner sadness arise whether the person is religious or not.
@@ -44,6 +42,8 @@ Participants experienced that healing is possible, that they can start over even
 ![](/uploads/125381237_3383106508403926_3021977328333782542_n.jpg)
 
 _Our retreat is based on Evangelium Vitae, the encyclical of Pope Saint John Paul II (Chapter IV. Point 99. Paragraph 3.), in which the Pope speaks to those affected by abortion._
+
+###### Healing, re-evangelizing weekend of mission by the Hungarian Emmanuel Community
 
 The leaders of this retreat are members of the EMMANUEL COMMUNITY Fraternity:
 
