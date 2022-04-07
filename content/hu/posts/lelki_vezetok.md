@@ -17,15 +17,25 @@ _„**NE FÉLJ, NEM ÍTÉLLEK EL!”**_
 
 _Abortusz utáni lelki gyógyulás_
 
-2009 óta az abortusz lelki fájdalmát hordozó nőknek, férfiaknak, az egészségügyben érintetteknek gyógyító, veszteség feldolgozó lelkigyakorlatokat tartunk. 
+2009 óta az abortusz lelki fájdalmát hordozó nőknek, férfiaknak, az egészségügyben érintetteknek gyógyító, veszteség feldolgozó lelkigyakorlatokat tartunk.
 
 **_„NE SÍRJ, NE BÁNKÓDJ!”_**
 
-_Vetélés, magzati halálozás, lombik babák elvesztése_ után gyógyító, veszteségét feldolgozó hétvégére várjuk az érintetteket.
+_Vetélés, magzati halálozás, "lombik" babák elvesztése_ után gyógyító, speciális gyászukat feldolgozó hétvégére várjuk az érintetteket.
 
 **MÁRIA RÁDIÓ**
 
-2010 óta a Mária Rádió _„Ne félj, nem ítéllek le!”_ műsorának szerkesztését és vezetését végezzük. A műsorban az érintettek vallomásai, valamint orvosi, lelkészi, pszichológusi szakvélemények hangzottak el. Segítséget kívánunk adni azoknak, akik szenvedésüket magukba zárva hordozzák. E műsorunk négyhetente kedd este 9 - kor jelentkezik.
+2010 óta a Mária Rádió _„Ne félj, nem ítéllek le!”_ műsorának szerkesztését és vezetését végezzük. 
+
+A műsorban az érintettek vallomásai, valamint orvosi, lelkészi, pszichológusi szakvélemények hangzottak el. 
+
+Segítséget kívánunk adni azoknak, akik a szenvedésüket magukba zárva hordozzák. 
+
+E műsorunk négyhetente kedden este 9 - kor jelentkezik.
+
+Korábbi műsorok meghallgathatók az alábbi linkre kattintva:
+
+[https://hangtar.mariaradio.hu/ne_felj_nem_itellek_el](https://hangtar.mariaradio.hu/ne_felj_nem_itellek_el "https://hangtar.mariaradio.hu/ne_felj_nem_itellek_el")
 
 **KÖNYVÜNK**
 
