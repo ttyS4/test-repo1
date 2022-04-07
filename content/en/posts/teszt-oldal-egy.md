@@ -26,7 +26,9 @@ Symptoms can be various: anxiety, anger, self-accusation, low self-esteem, misca
 
 You may refuse to listen to the sound of your heart for decades, but eventually something will renew the trauma you think you have forgotten: pregnancy, childbirth, miscarriage, menopause, mourning, divorce, illness or an accident. Then, pain will erupt with an elemental force. Anger, blame will rise in the woman towards everyone who talked her into it, who did not help her in her need. It hurts that no one said: „don’t do it!” They often blame God too: „If he really loves me, why did he let this happen to me?”
 
-![](/uploads/20190414_170518.jpg)**Fruits of the weekends:**
+![](/uploads/2008julius-116.jpg)
+
+**Fruits of the weekends:**
 
 Participants experienced that healing is possible, that they can start over even after such a shameful event which they did not even dare to talk about. Finding peace with God, with the people around you and within you can lead to a spiritual revival. This is partly the reason why people who are not religious can also attend.
 
