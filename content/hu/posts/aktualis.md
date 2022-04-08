@@ -1,39 +1,37 @@
 ---
 title: Aktuális
-date: 2022-02-20T17:30:26.000+01:00
+date: 2022-04-09T22:00:00+00:00
 
 ---
-### ![](/uploads/2008julius-116.jpg)
-
 ### **_Ne félj, nem ítéllek el!_**
 
-### **_Ne sírj, ne bánkódj!_**
+###                                **_Ne sírj, ne bánkódj!_**
+
+![](/uploads/236119006_309811004265737_8324925701847262768_n.jpg)
 
 ##### Megfogant benned egy kis élet és nem tudsz dönteni? – **_Van kiút!_**
 
 ##### Abortuszod volt és még mindig bánt? - **_Van rá orvosság_**_!_
 
-##### Tanácsot adtam, hogy az abortusz megoldás lesz az életére?- **_Van megbocsátás!_**
+##### Tanácsoltam, abortusz megoldás lesz az életére?- **_Van megbocsátás!_**
 
 ##### Vetélésed lelki fájdalma nem múlik? - **_Van segítség!_**
 
-##### Nem szülhetted meg "lombik babádat"? - **_Ő is a gyermeked!_**
+##### Nem szülhetted meg "lombik-babádat"? - **_Ő is a gyermeked!_**
 
-##### _A hétvégi lelkigyakorlaton terhedet Isten irgalmára bízhatod, nem vagy egyedül: gyógyulhat a bűntudat és fájdalom, **van mindig megoldás!**_
+##### Lelkigyakorlaton terhedet Isten irgalmára bízhatod.
 
-##### _A részvételnek nem feltétele a rendszeres vallásgyakorlás._
+##### A részvételnek nem feltétele a rendszeres vallásgyakorlás.
 
 ##### [Jelentkezéshez kattints ide](https://docs.google.com/forms/d/e/1FAIpQLSelGcU33X9XmPpw_vsGDoO09rN9m8KhA7Ym6EwkP0HtbU1ppA/viewform)
 
-#### 
-
-### ![](/uploads/71144982_2350512884996632_4872907544277811200_n.jpg)                  Itt a kellő idő!
-
 ##### Lehet, hogy eddig soha nem tudtál történeteddel szembenézni, fájdalmad magadba zártad.
+
+## ![](/uploads/71144982_2350512884996632_4872907544277811200_n.jpg)                  Itt a kellő idő!
 
 ##### Szeretettel hívunk team tagjainkkal együtt gyógyító kurzusunkra:
 
-##### Mária és Feri
+##### Mária és Ferenc
 
 ![](/uploads/2022-04-28-05-1_mariabesnyo.png)
 
