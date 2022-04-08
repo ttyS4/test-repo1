@@ -7,9 +7,9 @@ date: 2022-02-26T12:31:26.000+00:00
 
 ##### 🌼 2022. január 09
 
-##### Egyes csatorna
+##### _Egyes csatorna_
 
-##### „SEMMI NEM VÉLETLENÜL TÖRTÉNT” – EGY ANYA NÉGY VETÉLÉSÉNEK TÖRTÉNETE 
+##### „SEMMI NEM VÉLETLENÜL TÖRTÉNT” – EGY ANYA NÉGY VETÉLÉSÉNEK TÖRTÉNETE
 
 ##### Egy vetélésben az az igazán fájdalmas, hogy nemcsak a kisbabánkat veszítjük el, hanem megrendülhet önbizalmunk és anyai kompetenciánkba, akár Istenbe vetett hitünk is. A következő gyermekvállalás már ezzel a lelki teherrel indul, és ha a veszteség megismétlődik, a fájdalom, a szorongás és a bizalomvesztés a korábbinál is erősebb lehet, negatív érzelmi spirálba sodorhat minket. A „Ne félj, nem ítéllek el” lelkigyakorlaton megismertem egy fiatal, törékeny, kedves orvosnőt, aki négy kisbabát veszített el. Arra kértem, mesélje el történetét, hogy hasonló helyzetben lévők erőt meríthessenek belőle.
 
@@ -17,15 +17,15 @@ date: 2022-02-26T12:31:26.000+00:00
 
 ##### 🌼2022.augusztus.09
 
-##### Bízd rá magad.hu
+##### _Bízd rá magad.hu_
 
-##### "A két és fél nap után nemcsak odavitt sebeimet érzem gyógyultnak, és választ kaptam a jövőmet illető gyötrő kérdéseimre is, hanem lelkileg is sokkal gazdagabb lettem. Hiszen amellett, hogy hitem rengeteget mélyült, megismertem jó néhány olyan személyt, akikkel spontán sorsközösséget alkotva együtt sírtunk-nevettünk és gyógyultunk, akikért azóta is imádkozom, és akikkel azóta is tartom a kapcsolatot. Ahogy a Kovács házaspárral is. Ezúttal újságíróként kerestem meg őket, hogy a lelkigyakorlat hátteréről és személyes történetekről beszélgessünk." 
+##### "A két és fél nap után nemcsak odavitt sebeimet érzem gyógyultnak, és választ kaptam a jövőmet illető gyötrő kérdéseimre is, hanem lelkileg is sokkal gazdagabb lettem. Hiszen amellett, hogy hitem rengeteget mélyült, megismertem jó néhány olyan személyt, akikkel spontán sorsközösséget alkotva együtt sírtunk-nevettünk és gyógyultunk, akikért azóta is imádkozom, és akikkel azóta is tartom a kapcsolatot. Ahogy a Kovács házaspárral is. Ezúttal újságíróként kerestem meg őket, hogy a lelkigyakorlat hátteréről és személyes történetekről beszélgessünk."
 
 ##### [https://bizdramagad.hu/cikk/ne-felj-nem-itellek-el-a-magzatvesztok-lelkigyakorlata](https://bizdramagad.hu/cikk/ne-felj-nem-itellek-el-a-magzatvesztok-lelkigyakorlata)
 
-##### 🌼 2021. júlilus 27
+##### 🌼 _2021. júlilus 27_
 
-##### Egyes csatorna
+##### _Egyes csatorna_
 
 ##### „VISSZAKAPTAM HÁROM, ADDIG ELVESZÍTETTNEK HITT KISBABÁMAT” – VALLOMÁSOK EGY LELKIGYAKORLATRÓL.
 
@@ -37,7 +37,7 @@ date: 2022-02-26T12:31:26.000+00:00
 
 ##### 🌼 2019. november 19
 
-##### Magyar Hírlap
+##### _Magyar Hírlap_
 
 ##### **Abortuszon átesett nőknek nyújtanak lelki segítséget**
 
@@ -51,7 +51,7 @@ date: 2022-02-26T12:31:26.000+00:00
 
 ##### 🌼 2013. szeptember. 10
 
-##### Magyar Kurír
+##### _Magyar Kurír_
 
 ##### **„Ne félj, nem ítéllek el!” - az abortuszon átesettek lelkigyakorlatáról**
 
@@ -61,7 +61,7 @@ date: 2022-02-26T12:31:26.000+00:00
 
 ##### [https://www.magyarkurir.hu/hirek/ne-felj-nem-itellek-el-az-abortuszon-atesettek-lelkigyakorlatarol](https://www.magyarkurir.hu/hirek/ne-felj-nem-itellek-el-az-abortuszon-atesettek-lelkigyakorlatarol)
 
-##### 🌼 2012. szeptember 28
+##### 🌼 _2012. szeptember 28_
 
 ##### **AZ ÉLET: AJÁNDÉK” Nemzetközi Konferencia**
 
