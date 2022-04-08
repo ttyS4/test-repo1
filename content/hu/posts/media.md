@@ -1,66 +1,68 @@
 ---
 title: Média
-date: 2022-02-26T12:31:26+00:00
+date: 2022-02-26T12:31:26.000+00:00
 
 ---
 ![harang](harang_th.jpg)
 
-**2022\. jan. 09**
+##### 🌼 2022. január 09
 
-**Egyes csatorna**
+##### Egyes csatorna
 
-**„SEMMI NEM VÉLETLENÜL TÖRTÉNT”** – EGY ANYA NÉGY VETÉLÉSÉNEK TÖRTÉNETE Egy vetélésben az az igazán fájdalmas, hogy nemcsak a kisbabánkat veszítjük el, hanem megrendülhet önbizalmunk és anyai kompetenciánkba, akár Istenbe vetett hitünk is. A következő gyermekvállalás már ezzel a lelki teherrel indul, és ha a veszteség megismétlődik, a fájdalom, a szorongás és a bizalomvesztés a korábbinál is erősebb lehet, negatív érzelmi spirálba sodorhat minket. A „Ne félj, nem ítéllek el” lelkigyakorlaton megismertem egy fiatal, törékeny, kedves orvosnőt, aki négy kisbabát veszített el. Arra kértem, mesélje el történetét, hogy hasonló helyzetben lévők erőt meríthessenek belőle.
+##### „SEMMI NEM VÉLETLENÜL TÖRTÉNT” – EGY ANYA NÉGY VETÉLÉSÉNEK TÖRTÉNETE 
 
-[https://egy.hu/csalad/semmi-nem-veletlenul-tortent-egy-anya-negy-vetelesenek-tortenete-110502](<https://egy.hu/csalad/semmi-nem-veletlenul-tortent-egy-anya-negy-vetelesenek-tortenete-110502>)
+##### Egy vetélésben az az igazán fájdalmas, hogy nemcsak a kisbabánkat veszítjük el, hanem megrendülhet önbizalmunk és anyai kompetenciánkba, akár Istenbe vetett hitünk is. A következő gyermekvállalás már ezzel a lelki teherrel indul, és ha a veszteség megismétlődik, a fájdalom, a szorongás és a bizalomvesztés a korábbinál is erősebb lehet, negatív érzelmi spirálba sodorhat minket. A „Ne félj, nem ítéllek el” lelkigyakorlaton megismertem egy fiatal, törékeny, kedves orvosnőt, aki négy kisbabát veszített el. Arra kértem, mesélje el történetét, hogy hasonló helyzetben lévők erőt meríthessenek belőle.
 
-**2022\.08.09**
+##### [https://egy.hu/csalad/semmi-nem-veletlenul-tortent-egy-anya-negy-vetelesenek-tortenete-110502](https://egy.hu/csalad/semmi-nem-veletlenul-tortent-egy-anya-negy-vetelesenek-tortenete-110502)
 
-**Bízd rá magad.hu**
+##### 🌼2022.augusztus.09
 
-*"A két és fél nap után nemcsak odavitt sebeimet érzem gyógyultnak, és választ kaptam a jövőmet illető gyötrő kérdéseimre is, hanem lelkileg is sokkal gazdagabb lettem. Hiszen amellett, hogy hitem rengeteget mélyült, megismertem jó néhány olyan személyt, akikkel spontán sorsközösséget alkotva együtt sírtunk-nevettünk és gyógyultunk, akikért azóta is imádkozom, és akikkel azóta is tartom a kapcsolatot. Ahogy a Kovács házaspárral is. Ezúttal újságíróként kerestem meg őket, hogy a lelkigyakorlat hátteréről és személyes történetekről beszélgessünk." *
+##### Bízd rá magad.hu
 
-[https://bizdramagad.hu/cikk/ne-felj-nem-itellek-el-a-magzatvesztok-lelkigyakorlata](<https://bizdramagad.hu/cikk/ne-felj-nem-itellek-el-a-magzatvesztok-lelkigyakorlata>)
+##### "A két és fél nap után nemcsak odavitt sebeimet érzem gyógyultnak, és választ kaptam a jövőmet illető gyötrő kérdéseimre is, hanem lelkileg is sokkal gazdagabb lettem. Hiszen amellett, hogy hitem rengeteget mélyült, megismertem jó néhány olyan személyt, akikkel spontán sorsközösséget alkotva együtt sírtunk-nevettünk és gyógyultunk, akikért azóta is imádkozom, és akikkel azóta is tartom a kapcsolatot. Ahogy a Kovács házaspárral is. Ezúttal újságíróként kerestem meg őket, hogy a lelkigyakorlat hátteréről és személyes történetekről beszélgessünk." 
 
-**2021\. júl. 27**
+##### [https://bizdramagad.hu/cikk/ne-felj-nem-itellek-el-a-magzatvesztok-lelkigyakorlata](https://bizdramagad.hu/cikk/ne-felj-nem-itellek-el-a-magzatvesztok-lelkigyakorlata)
 
-**Egyes csatorna**
+##### 🌼 2021. júlilus 27
 
-**„VISSZAKAPTAM HÁROM, ADDIG ELVESZÍTETTNEK HITT KISBABÁMAT”** – VALLOMÁSOK EGY LELKIGYAKORLATRÓL.
+##### Egyes csatorna
 
-"A Ne félj, nem ítéllek el” lelkigyakorlat szervezőivel több rendezvényen is találkoztam már, de sosem mutatkoztam be nekik – sem magánemberként, sem újságíróként. Két, első látásra is nagyon szimpatikus idős személyről van szó, akik láthatóan különleges erős házassági kötelékben élnek és hivatásuk a babákkal kapcsolatos veszteségek lelki gyógyítása. Zavarba hozott a téma… Nemrég viszont testközelből élhettem meg, milyen is az, amivel ők ketten sok éve foglalkoznak."
+##### „VISSZAKAPTAM HÁROM, ADDIG ELVESZÍTETTNEK HITT KISBABÁMAT” – VALLOMÁSOK EGY LELKIGYAKORLATRÓL.
 
-Antal-Ferencz Ildikó
+##### "A Ne félj, nem ítéllek el” lelkigyakorlat szervezőivel több rendezvényen is találkoztam már, de sosem mutatkoztam be nekik – sem magánemberként, sem újságíróként. Két, első látásra is nagyon szimpatikus idős személyről van szó, akik láthatóan különleges erős házassági kötelékben élnek és hivatásuk a babákkal kapcsolatos veszteségek lelki gyógyítása. Zavarba hozott a téma… Nemrég viszont testközelből élhettem meg, milyen is az, amivel ők ketten sok éve foglalkoznak."
 
-[https://egy.hu/megoszto/visszakaptam-harom-addig-elveszitettnek-hitt-kisbabamat-vallomasok-egy-lelkigyakorlatrol-109675](<https://egy.hu/megoszto/visszakaptam-harom-addig-elveszitettnek-hitt-kisbabamat-vallomasok-egy-lelkigyakorlatrol-109675>)
+##### Antal-Ferencz Ildikó
 
-**2019\. nov. 19**
+##### [https://egy.hu/megoszto/visszakaptam-harom-addig-elveszitettnek-hitt-kisbabamat-vallomasok-egy-lelkigyakorlatrol-109675](https://egy.hu/megoszto/visszakaptam-harom-addig-elveszitettnek-hitt-kisbabamat-vallomasok-egy-lelkigyakorlatrol-109675)
 
-**Magyar Hírlap**
+##### 🌼 2019. november 19
 
-**Abortuszon átesett nőknek nyújtanak lelki segítséget**
+##### Magyar Hírlap
 
-*„Nem azért éreznek bűntudatot a nők, mert a tízparancsolat ellen vétettek, hanem tudatára ébrednek annak: az emberi természetünkbe oltott erkölcsi törvény ellenére cselekedtek.”* Lázin Miklós András
+##### **Abortuszon átesett nőknek nyújtanak lelki segítséget**
 
-**2016\. szept.15**
+##### _„Nem azért éreznek bűntudatot a nők, mert a tízparancsolat ellen vétettek, hanem tudatára ébrednek annak: az emberi természetünkbe oltott erkölcsi törvény ellenére cselekedtek.”_ Lázin Miklós András
 
-**Bonum TV vendége** volt Kovácsné Treer Mária mentálhigiénés lelkigondozó és Kovács Ferenc diakónus 2016. szeptember 15-én. A felvétel az alábbi link segítségével meghallgatható:
+##### 🌼 2016. szeptember 15
 
-[http://bonumtv.hu/ne-felj-nem-itellek-el](<http://bonumtv.hu/ne-felj-nem-itellek-el>)
+##### **Bonum TV vendége** volt Kovácsné Treer Mária mentálhigiénés lelkigondozó és Kovács Ferenc diakónus 2016. szeptember 15-én. A felvétel az alábbi link segítségével meghallgatható:
 
-**2013\. szept. 10**
+##### [http://bonumtv.hu/ne-felj-nem-itellek-el](http://bonumtv.hu/ne-felj-nem-itellek-el)
 
-**Magyar Kurír**
+##### 🌼 2013. szeptember. 10
 
-**„Ne félj, nem ítéllek el!” - az abortuszon átesettek lelkigyakorlatáról**
+##### Magyar Kurír
 
-Kovács Ferenc állandó diakónus és felesége, Kovácsné Treer Mária mentálhigiénés lelkigondozó rendszeresen tart lelkigyakorlatot abortuszon átesettek számára. Velük beszélgettünk az abortusz okairól, az azt követő lelki fájdalmakról és a gyógyulásról.
+##### **„Ne félj, nem ítéllek el!” - az abortuszon átesettek lelkigyakorlatáról**
 
-Gyakran éri az a kritika az Egyházat, hogy csak bűnösnek kiáltja ki az abortuszon átesett nőket, és nem segít nekik. Az Önök kezdeményezése épp az ellenkezőjét mutatja.
+##### Kovács Ferenc állandó diakónus és felesége, Kovácsné Treer Mária mentálhigiénés lelkigondozó rendszeresen tart lelkigyakorlatot abortuszon átesettek számára. Velük beszélgettünk az abortusz okairól, az azt követő lelki fájdalmakról és a gyógyulásról.
 
-[https://www.magyarkurir.hu/hirek/ne-felj-nem-itellek-el-az-abortuszon-atesettek-lelkigyakorlatarol](<https://www.magyarkurir.hu/hirek/ne-felj-nem-itellek-el-az-abortuszon-atesettek-lelkigyakorlatarol>)
+##### Gyakran éri az a kritika az Egyházat, hogy csak bűnösnek kiáltja ki az abortuszon átesett nőket, és nem segít nekik. Az Önök kezdeményezése épp az ellenkezőjét mutatja.
 
-**2012\. szept. 28**
+##### [https://www.magyarkurir.hu/hirek/ne-felj-nem-itellek-el-az-abortuszon-atesettek-lelkigyakorlatarol](https://www.magyarkurir.hu/hirek/ne-felj-nem-itellek-el-az-abortuszon-atesettek-lelkigyakorlatarol)
 
-**AZ ÉLET: AJÁNDÉK” Nemzetközi Konferencia**
+##### 🌼 2012. szeptember 28
 
-[Videotórium](https://videotorium.hu/hu/recordings/5146/ne-felj-nem-itellek-el-kiut-az-abortusz-okozta-fajdalombol-kovacsne-treer-maria-lelki-gondozo-gyasztanacsado)
+##### **AZ ÉLET: AJÁNDÉK” Nemzetközi Konferencia**
+
+##### [Videotórium](https://videotorium.hu/hu/recordings/5146/ne-felj-nem-itellek-el-kiut-az-abortusz-okozta-fajdalombol-kovacsne-treer-maria-lelki-gondozo-gyasztanacsado)
