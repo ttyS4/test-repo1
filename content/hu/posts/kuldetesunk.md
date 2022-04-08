@@ -3,9 +3,31 @@ title: Küldetésünk
 date: 2022-02-21T21:26:19.000+01:00
 
 ---
+#### **_Egész életet egy hibás döntés nem határozhatja meg!_**
+
+### KÜLDETÉSÜNK
+
+#### az abortuszban érintett anyák, apák, közreműködő nagyszülők, családtagok,
+
+#### egészségügyi munkatársak,
+
+#### magzatgyermeket, lombik-babát elvesztettek felé irányul.
+
+### _„NE FÉLJ NEM ÍTÉLLEK EL!”_ hétvégén
+
+### _"NE SÍRJ, NE BÁNKÓDJ!"_ hétvégén
+
+#### lelki gyógyulás, megbocsátás,
+
+#### veszteségfeldolgozás,
+
+#### életük átgondolása, újratervezése történik meg.
+
+#### **Segítség**: a lelkigyakorlat munkatársai, a sorstársak feltétel nélküli szeretete, valamint az örömteli életet élő korábbi résztvevők tanúságtételei.
+
 ## **_Ne félj, nem ítéllek el!_**
 
-##### Hétvégénk után több száz érintett nő és férfi tanúsítja:
+##### Hétvégénk után több száz résztvevő tanúsítja:
 
 ![](/uploads/200758745_3956816277699610_8032290643553669935_n-masolata.jpg)
 
@@ -35,7 +57,7 @@ date: 2022-02-21T21:26:19.000+01:00
 
 #### **💔 Bűntudat – lelki szomorúság**
 
-###### A bűntudat – vallási kifejezés helyett inkább így fogalmaznék: lelki szomorúság. Sokkal többeknek van _bűntudat érzése_, mint ahányan vallásosak. A szakdolgozatomban vizsgált nők 66 százaléka beszélt a _bűntudat érzéséről_, de csak 20 százalékuk mondta magát vallásosnak. 
+###### A bűntudat – vallási kifejezés helyett inkább így fogalmaznék: lelki szomorúság. Sokkal többeknek van _bűntudat érzése_, mint ahányan vallásosak. A szakdolgozatomban vizsgált nők 66 százaléka beszélt a _bűntudat érzéséről_, de csak 20 százalékuk mondta magát vallásosnak.
 
 ###### Sokan úgy élik meg, hogy a vetélés, meddőség, vagy a kudarc az életükben az Isten büntetése. Az isteni büntetés érzése akkor is előjön, ha valaki nem igazán vallásos, csak akkor esetleg a „sors” büntetésének nevezi.
 
@@ -77,7 +99,7 @@ date: 2022-02-21T21:26:19.000+01:00
 
 ## **_VAN GYÓGYULÁS_**
 
-###               **_a hétvégén, de hogyan?_**
+### **_a hétvégén, de hogyan?_**
 
 ##### 😥 Gyász és veszteség feldolgozás történik.
 
@@ -97,7 +119,7 @@ date: 2022-02-21T21:26:19.000+01:00
 
 ### **_GYÓGYULÁS a szívben_**
 
-###### A résztvevőink megtapasztalták, hogy van gyógyulás, lehetséges az újrakezdés még ebben a szégyellni való és tabunak tekintett helyzetben is. Az Istennel, másokkal, önmagával való megbékélést hitbeli megújulás követheti. 
+###### A résztvevőink megtapasztalták, hogy van gyógyulás, lehetséges az újrakezdés még ebben a szégyellni való és tabunak tekintett helyzetben is. Az Istennel, másokkal, önmagával való megbékélést hitbeli megújulás követheti.
 
 ##### **Évekkel később hangzottak el:**
 
@@ -113,7 +135,7 @@ date: 2022-02-21T21:26:19.000+01:00
 
 ###### 👩 _„Kétféle kapcsolatból két kamasz fiam van. A jelenlegi élettársammal 5 éve élünk együtt, de a várt baba nem jött. Úgy éreztem, a Sors megbüntetett, hogy nem fogadtam el fiatalon az érkezőket. A hétvége után 42 évesen megfogant kislányom. Boldogok vagyunk.”_
 
-##### ![](/uploads/125381237_3383106508403926_3021977328333782542_n.jpg)                              
+##### ![](/uploads/125381237_3383106508403926_3021977328333782542_n.jpg)
 
 ##### A lelkigyakorlatunk alapja
 
