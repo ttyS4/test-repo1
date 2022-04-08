@@ -31,7 +31,7 @@ _A részvételnek nem feltétele a rendszeres vallásgyakorlás._
 
 Lehet, hogy eddig soha nem tudtál történeteddel szembenézni, fájdalmad magadba zártad.
 
-Hang 2020_hétvége_wma
+[https://drive.google.com/file/d/1ocsyNdLnQe6xLHLcvEhbf7YdPtH-E3Xj/view?usp=sharing](https://drive.google.com/file/d/1ocsyNdLnQe6xLHLcvEhbf7YdPtH-E3Xj/view?usp=sharing "https://drive.google.com/file/d/1ocsyNdLnQe6xLHLcvEhbf7YdPtH-E3Xj/view?usp=sharing")
 
 Szeretettel hívunk team tagjainkkal együtt gyógyító kurzusunkra:
 
