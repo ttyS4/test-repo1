@@ -5,7 +5,7 @@ date: 2022-02-21T14:05:48.000+01:00
 ---
 Kedves Érdeklődő Testvérünk!
 
-Várjuk kérdésed telefonon, e-mailben és a facebookon.
+Várjuk kérdését telefonon, e-mailben és a facebookon.
 
 Szeretettel: Mária és Feri
 
@@ -16,3 +16,9 @@ Szeretettel: Mária és Feri
 **Facebook:** https://www.facebook.com/nefeljnemitellekel
 
 ![Mária és Feri](/images/maria-feri.jpg)
+
+_"Ne félj, mert megváltottalak, neveden szólítottalak ...."_ 
+
+Signum együttes 3 perc 45 mp
+
+[https://drive.google.com/file/d/1pk3VyXalThw4yEV0QolaKFYx0YlGa0kj/view?usp=sharing](https://drive.google.com/file/d/1pk3VyXalThw4yEV0QolaKFYx0YlGa0kj/view?usp=sharing "https://drive.google.com/file/d/1pk3VyXalThw4yEV0QolaKFYx0YlGa0kj/view?usp=sharing")
