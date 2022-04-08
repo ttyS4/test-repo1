@@ -62,3 +62,38 @@ Kattints a linkre:
 [https://hangtar.mariaradio.hu/media/ne_felj_nem_itellek_el/2021.06.01_21-05-ne_felj_nem_itellek_el.mp3](https://hangtar.mariaradio.hu/media/ne_felj_nem_itellek_el/2021.06.01_21-05-ne_felj_nem_itellek_el.mp3 "https://hangtar.mariaradio.hu/media/ne_felj_nem_itellek_el/2021.06.01_21-05-ne_felj_nem_itellek_el.mp3")
 
 ![](/uploads/megszuletett.jpg)
+
+### **_ÉS AKKOR ÁTÖLELT AZ ISTEN_**
+
+💔 Hívő katolikus, nagycsaládban nőttem fel, a kornak megfelelő szigorú, büntető Istenképpel, mellyel sok gondom is volt, féltem. Szüleim elváltak, s mivel én édesapámra hasonlítottam, hozzá nagyon kötődtem, a családban fekete báránynak éreztem magam. Ez ellenállásra, önállóságra edzett és nagyon összekovácsolt testvéremmel.
+
+💔 Férjemet 14 évesen ismertem meg, s a családjában történt hirtelen halálesetek miatt nagyon fiatalon házasságot kötöttünk – de nem szentségit. Miután „nem engedelmeskedtünk egymásnak Krisztus félelmében” 7 év után elváltunk, fiunkat egyedül neveltem. RH összeférhetetlenségre hivatkozva egyetlen magzatomat sem tartottam meg, sem házasságunkban, sem későbbi kapcsolatomban. 
+
+💔 Mély nyomot hagyott bennem a várandósságom közbeni, majd az 1 napos pici babám vércseréjével járó minden bizonytalanság és megpróbáltatás. Abortuszra irányuló döntésemmel férjem egyetértett. Hazánkban, az 1960-as években nem ismertek és nem ajánlottak más lehetőséget ezen kívül. Így sikerült leküzdeni lelkiismeret-furdalásomat, szomorúságomat. Tehetséges, nyílt eszű gyermekem örökölte apai ágról a bipoláris depressziót, fiatalon kezelésre szorult, nem találta útját. 13 évet bolyongtam, örömben, nehézségben, gondban. Újra jártam templomba, megoldásért Istenhez fordultam, s meghallgatott. Gyermekem diplomát szerzett, megnősült. Sokat beszélgettem vele is a hitről. Öcsém korai halálának feldolgozásához, az életgyónáshoz barátaimmal együtt ő vezetett el.
+
+💔 Észleltem fiam gondjait, mégsem tudtam megmenteni. Önkezével vetett véget az életének, itt hagyva gyermekeit, feleségét. Feladta mindennapi küzdelmét. 41 éves volt. Este kaptam a hírt. Imádkoztam és vártam a hajnalt, hogy értesítsem külföldön élő édesapját. Azon az éjjelen szembesültem az életgyónásban „gyorsan és hatásosan” bevallott tetteimmel. Feloldozást nyertem, de nincsenek mellettem a testvérei, akiktől én tagadtam meg az életet. A jól elrejtett bűntudat felszabadult. Nem kértem számon az Úrtól, „miért hagyta, miért vette el?”. Csakis magamat okolhattam, egyedül maradtam. A kripta előtt állva éreztem a Szűzanya fájdalmát.
+
+💔 Út és közösség keresésben teltek az évek, lassan oldódott a gyász és erről már beszélni is tudtam a Mária Rádióban. A műsorvezető házaspár hívott az abortusz okozta szindróma feldolgozásához vezető lelkigyakorlatukra.[1](#sdfootnote1sym)
+
+Keserves volt, bugyogva tört fel az elkeseredés:
+
+* szabad akaratomból sikerült vétkeznem és magamnak veszteséget okoznom,
+* meggyóntam, feloldozást kaptam, de nem nyugodtam meg,
+* sírtam, sirattam mindenkit és mindent.
+* Bizonyosságot kerestem: Isten tényleg megbocsájt, gyógyít, segít, sőt: szeret?
+
+💔 Aztán a **Szentségimádás alatt** kiszakadt belőlem a bánat, elcsendesedett minden és végtelen béke és öröm töltött el. Gyóntam, de másként. Úgy jöttem haza, mint akit kicseréltek.
+
+A hétköznapokban ez a megkönnyebbülés picit szürkült. Sokszor elbizonytalanodtam: tényleg lehetséges így lerakni a terheket? Lassan szoktam hozzá a rendszeres, napi imaélethez, olvasok hozzá elmélkedéseket. Másként látom az életemet, múltamat. Az események átértékelődtek bennem. Hiszem, hogy a gyerekeim egymásra találtak a másvilágon: azzal a szeretettel fordulnak felém, amit fiamtól életében kaptam, és közbenjárnak unokáimért.
+
+Az Úrra bízom lépéseimet, nem aggódom, s így nincsenek kudarcaim, vagy legalábbis nem úgy látom.
+
+Megéltem az ÚR kegyelmét, felszabadított.
+
+Pio atya szavaival:
+
+„ _Múltamat, ó, Uram a te kegyelmedre bízom, jelenemet a te szeretetedre, jövőmet  te gondviselésedre!” Hilda_
+
+                                        _![](/uploads/gyertyatarto-1.jpg)_
+
+ 
