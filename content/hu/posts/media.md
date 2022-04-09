@@ -9,7 +9,7 @@ date: 2022-02-26T12:31:26.000+00:00
 
 ##### _Egyes csatorna_
 
-##### „SEMMI NEM VÉLETLENÜL TÖRTÉNT” – EGY ANYA NÉGY VETÉLÉSÉNEK TÖRTÉNETE
+##### „_SEMMI NEM VÉLETLENÜL TÖRTÉNT”_ – EGY ANYA NÉGY VETÉLÉSÉNEK TÖRTÉNETE
 
 ##### Egy vetélésben az az igazán fájdalmas, hogy nemcsak a kisbabánkat veszítjük el, hanem megrendülhet önbizalmunk és anyai kompetenciánkba, akár Istenbe vetett hitünk is. A következő gyermekvállalás már ezzel a lelki teherrel indul, és ha a veszteség megismétlődik, a fájdalom, a szorongás és a bizalomvesztés a korábbinál is erősebb lehet, negatív érzelmi spirálba sodorhat minket. A „Ne félj, nem ítéllek el” lelkigyakorlaton megismertem egy fiatal, törékeny, kedves orvosnőt, aki négy kisbabát veszített el. Arra kértem, mesélje el történetét, hogy hasonló helyzetben lévők erőt meríthessenek belőle.
 
