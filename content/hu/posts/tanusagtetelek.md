@@ -1,6 +1,6 @@
 +++
 date = ""
-draft = true
+draft = false
 title = "TANÚSÁGTÉTELEK"
 
 +++
