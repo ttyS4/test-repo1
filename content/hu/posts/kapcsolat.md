@@ -17,7 +17,7 @@ date: 2022-02-21T14:05:48.000+01:00
 
 ![Mária és Feri](/images/maria-feri.jpg)
 
-##### _"Ne félj, mert megváltottalak, neveden szólítottalak ...."_
+##### _"Ne félj, mert megváltottalak, neveden szólítottalak ...."_ 
 
 ##### Signum együttes 3 perc 45 mp
 
