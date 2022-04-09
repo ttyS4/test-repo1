@@ -1,7 +1,6 @@
 +++
-date = ""
-draft = false
-title = "TANÚSÁGTÉTELEK"
+date = 2022-04-08T22:00:00Z
+title = "Tanúságtételek"
 
 +++
 ### **💖 Négy gyermekes édesanya vallomása**
