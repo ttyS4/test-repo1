@@ -11,7 +11,7 @@ date: 2022-02-26T12:31:26.000+00:00
 
 ##### „_SEMMI NEM VÉLETLENÜL TÖRTÉNT”_ – EGY ANYA NÉGY VETÉLÉSÉNEK TÖRTÉNETE
 
-##### Egy vetélésben az az igazán fájdalmas, hogy nemcsak a kisbabánkat veszítjük el, hanem megrendülhet önbizalmunk és anyai kompetenciánkba, akár Istenbe vetett hitünk is. A következő gyermekvállalás már ezzel a lelki teherrel indul, és ha a veszteség megismétlődik, a fájdalom, a szorongás és a bizalomvesztés a korábbinál is erősebb lehet, negatív érzelmi spirálba sodorhat minket. A „Ne félj, nem ítéllek el” lelkigyakorlaton megismertem egy fiatal, törékeny, kedves orvosnőt, aki négy kisbabát veszített el. Arra kértem, mesélje el történetét, hogy hasonló helyzetben lévők erőt meríthessenek belőle.
+Egy vetélésben az az igazán fájdalmas, hogy nemcsak a kisbabánkat veszítjük el, hanem megrendülhet önbizalmunk és anyai kompetenciánkba, akár Istenbe vetett hitünk is. A következő gyermekvállalás már ezzel a lelki teherrel indul, és ha a veszteség megismétlődik, a fájdalom, a szorongás és a bizalomvesztés a korábbinál is erősebb lehet, negatív érzelmi spirálba sodorhat minket. A „Ne félj, nem ítéllek el” lelkigyakorlaton megismertem egy fiatal, törékeny, kedves orvosnőt, aki négy kisbabát veszített el. Arra kértem, mesélje el történetét, hogy hasonló helyzetben lévők erőt meríthessenek belőle.
 
 ##### [https://egy.hu/csalad/semmi-nem-veletlenul-tortent-egy-anya-negy-vetelesenek-tortenete-110502](https://egy.hu/csalad/semmi-nem-veletlenul-tortent-egy-anya-negy-vetelesenek-tortenete-110502)
 
@@ -19,7 +19,7 @@ date: 2022-02-26T12:31:26.000+00:00
 
 ##### _Bízd rá magad.hu_
 
-##### "A két és fél nap után nemcsak odavitt sebeimet érzem gyógyultnak, és választ kaptam a jövőmet illető gyötrő kérdéseimre is, hanem lelkileg is sokkal gazdagabb lettem. Hiszen amellett, hogy hitem rengeteget mélyült, megismertem jó néhány olyan személyt, akikkel spontán sorsközösséget alkotva együtt sírtunk-nevettünk és gyógyultunk, akikért azóta is imádkozom, és akikkel azóta is tartom a kapcsolatot. Ahogy a Kovács házaspárral is. Ezúttal újságíróként kerestem meg őket, hogy a lelkigyakorlat hátteréről és személyes történetekről beszélgessünk."
+"A két és fél nap után nemcsak odavitt sebeimet érzem gyógyultnak, és választ kaptam a jövőmet illető gyötrő kérdéseimre is, hanem lelkileg is sokkal gazdagabb lettem. Hiszen amellett, hogy hitem rengeteget mélyült, megismertem jó néhány olyan személyt, akikkel spontán sorsközösséget alkotva együtt sírtunk-nevettünk és gyógyultunk, akikért azóta is imádkozom, és akikkel azóta is tartom a kapcsolatot. Ahogy a Kovács házaspárral is. Ezúttal újságíróként kerestem meg őket, hogy a lelkigyakorlat hátteréről és személyes történetekről beszélgessünk."
 
 ##### [https://bizdramagad.hu/cikk/ne-felj-nem-itellek-el-a-magzatvesztok-lelkigyakorlata](https://bizdramagad.hu/cikk/ne-felj-nem-itellek-el-a-magzatvesztok-lelkigyakorlata)
 
@@ -27,9 +27,9 @@ date: 2022-02-26T12:31:26.000+00:00
 
 ##### _Egyes csatorna_
 
-##### „VISSZAKAPTAM HÁROM, ADDIG ELVESZÍTETTNEK HITT KISBABÁMAT” – VALLOMÁSOK EGY LELKIGYAKORLATRÓL.
+„VISSZAKAPTAM HÁROM, ADDIG ELVESZÍTETTNEK HITT KISBABÁMAT” – VALLOMÁSOK EGY LELKIGYAKORLATRÓL.
 
-##### "A Ne félj, nem ítéllek el” lelkigyakorlat szervezőivel több rendezvényen is találkoztam már, de sosem mutatkoztam be nekik – sem magánemberként, sem újságíróként. Két, első látásra is nagyon szimpatikus idős személyről van szó, akik láthatóan különleges erős házassági kötelékben élnek és hivatásuk a babákkal kapcsolatos veszteségek lelki gyógyítása. Zavarba hozott a téma… Nemrég viszont testközelből élhettem meg, milyen is az, amivel ők ketten sok éve foglalkoznak."
+"A Ne félj, nem ítéllek el” lelkigyakorlat szervezőivel több rendezvényen is találkoztam már, de sosem mutatkoztam be nekik – sem magánemberként, sem újságíróként. Két, első látásra is nagyon szimpatikus idős személyről van szó, akik láthatóan különleges erős házassági kötelékben élnek és hivatásuk a babákkal kapcsolatos veszteségek lelki gyógyítása. Zavarba hozott a téma… Nemrég viszont testközelből élhettem meg, milyen is az, amivel ők ketten sok éve foglalkoznak."
 
 ##### Antal-Ferencz Ildikó
 
@@ -41,11 +41,11 @@ date: 2022-02-26T12:31:26.000+00:00
 
 ##### **Abortuszon átesett nőknek nyújtanak lelki segítséget**
 
-##### _„Nem azért éreznek bűntudatot a nők, mert a tízparancsolat ellen vétettek, hanem tudatára ébrednek annak: az emberi természetünkbe oltott erkölcsi törvény ellenére cselekedtek.”_ Lázin Miklós András
+_„Nem azért éreznek bűntudatot a nők, mert a tízparancsolat ellen vétettek, hanem tudatára ébrednek annak: az emberi természetünkbe oltott erkölcsi törvény ellenére cselekedtek.”_ Lázin Miklós András
 
 ##### 🌼 2016. szeptember 15
 
-##### **Bonum TV vendége** volt Kovácsné Treer Mária mentálhigiénés lelkigondozó és Kovács Ferenc diakónus 2016. szeptember 15-én. A felvétel az alábbi link segítségével meghallgatható:
+**Bonum TV vendége** volt Kovácsné Treer Mária mentálhigiénés lelkigondozó és Kovács Ferenc diakónus 2016. szeptember 15-én. A felvétel az alábbi link segítségével meghallgatható:
 
 ##### [http://bonumtv.hu/ne-felj-nem-itellek-el](http://bonumtv.hu/ne-felj-nem-itellek-el)
 
@@ -55,9 +55,9 @@ date: 2022-02-26T12:31:26.000+00:00
 
 ##### **„Ne félj, nem ítéllek el!” - az abortuszon átesettek lelkigyakorlatáról**
 
-##### Kovács Ferenc állandó diakónus és felesége, Kovácsné Treer Mária mentálhigiénés lelkigondozó rendszeresen tart lelkigyakorlatot abortuszon átesettek számára. Velük beszélgettünk az abortusz okairól, az azt követő lelki fájdalmakról és a gyógyulásról.
+Kovács Ferenc állandó diakónus és felesége, Kovácsné Treer Mária mentálhigiénés lelkigondozó rendszeresen tart lelkigyakorlatot abortuszon átesettek számára. Velük beszélgettünk az abortusz okairól, az azt követő lelki fájdalmakról és a gyógyulásról.
 
-##### Gyakran éri az a kritika az Egyházat, hogy csak bűnösnek kiáltja ki az abortuszon átesett nőket, és nem segít nekik. Az Önök kezdeményezése épp az ellenkezőjét mutatja.
+Gyakran éri az a kritika az Egyházat, hogy csak bűnösnek kiáltja ki az abortuszon átesett nőket, és nem segít nekik. Az Önök kezdeményezése épp az ellenkezőjét mutatja.
 
 ##### [https://www.magyarkurir.hu/hirek/ne-felj-nem-itellek-el-az-abortuszon-atesettek-lelkigyakorlatarol](https://www.magyarkurir.hu/hirek/ne-felj-nem-itellek-el-az-abortuszon-atesettek-lelkigyakorlatarol)
 
