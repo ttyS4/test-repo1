@@ -1,7 +1,7 @@
 +++
-date = 2022-02-26T20:39:00Z
+date = 2022-05-15T19:03:00Z
 draft = true
-title = "teszt oldal egy"
+title = "Fear not, i won’t judge you!  – a way out of the pain of abortion"
 
 +++
 ## **Fear not, i won’t judge you!**
@@ -32,17 +32,17 @@ title = "teszt oldal egy"
 
 #### **Testimonies from participants:**
 
-##### “After my abortion, I was unable to graduate from college. I gave up. I was treated with depression and I couldn’t stop blaming myself. Now, after the weekend, I applied to another school. I’m looking forward to it. I really hope that this time I won’t fail.”
+##### 🎶“After my abortion, I was unable to graduate from college. I gave up. I was treated with depression and I couldn’t stop blaming myself. Now, after the weekend, I applied to another school. I’m looking forward to it. I really hope that this time I won’t fail.”
 
-##### “I believed I wasn’t worthy to work in my profession – as a medical assistant. Today, I am a doctor, I help other people.”
+##### 🩺“I believed I wasn’t worthy to work in my profession – as a medical assistant. Today, I am a doctor, I help other people.”
 
-##### “At first I couldn’t tell my daughters they could have had other siblings. I was afraid they would despise me, judge me. I asked them to never make the same mistake. Should they ever be in trouble, I’ll be there. I can’t say they were proud of me, but our relationship became more honest.“
+##### 🌼  “At first I couldn’t tell my daughters they could have had other siblings. I was afraid they would despise me, judge me. I asked them to never make the same mistake. Should they ever be in trouble, I’ll be there. I can’t say they were proud of me, but our relationship became more honest.“
 
-##### “At the age of forty, I started attending Bible classes and had my First Communion. “
+##### ⛪“At the age of forty, I started attending Bible classes and had my First Communion. “
 
-##### “I found Mr. Right and we got married in a church. My frustration and the feeling that nothing matters both stopped. Our marriage is nothing like my past insecure relationships. We can lean on each other. It makes me feel safe. “
+##### 💕“I found Mr. Right and we got married in a church. My frustration and the feeling that nothing matters both stopped. Our marriage is nothing like my past insecure relationships. We can lean on each other. It makes me feel safe. “
 
-##### “I have two teenage boys from two different relationships. My current partner and I’ve been together for 5 years, but no matter how hard we tried, we could not have a baby. I felt like the universe was punishing me for the babies I had given up when I was younger. After the weekend, at the age of 42, our daughter was conceived. We are so happy! “
+##### 👍“I have two teenage boys from two different relationships. My current partner and I’ve been together for 5 years, but no matter how hard we tried, we could not have a baby. I felt like the universe was punishing me for the babies I had given up when I was younger. After the weekend, at the age of 42, our daughter was conceived. We are so happy! “
 
 ![](/uploads/gyertyatarto-1.jpg)
 
@@ -68,9 +68,9 @@ title = "teszt oldal egy"
 
 ##### When the “father” was informed about my pregnancy, (I was 18 years old), he took me to a hospital, talked to a doctor and left. I have never seen him again. I felt miserable and paralyzed by shame. Dark despair and hopelessness completely overwhelmed me. How to go on…? I felt lonely, in pain, and painfully lonely in spiritual and physical emptiness. It is a bad and painful memory, I had no other choice. All I knew was that I never wanted to live through something like this again.
 
-#### **I continued my studies in medicine.** 
+#### **I continued my studies in medicine.**
 
-##### I was not aware what a foetus that is scratched out during abortion looked like. Once I saw it! It was a staggering confrontation. Small body-parts scattered, legs, hands….! From this moment I avoided this practice as far as I could. It took me years until I could somewhat get over this confrontation. With great determination I tried to create some order in my life, like bird making a nest. At last, I was ready for a child! But the child did not come! Medical examinations, tests, treatments, etc.., but nothing. It reminded me of “Crime and punishment”. I had nightmares almost every night. I gave birth to my unborn child almost every night. I was a happy mother during the night, but as I woke up, depressive reality awaited me. I cannot have a child! During these years, I saw pregnant women, or mothers pushing their prams everywhere. The feeling of mourning and a sense of guilt were ever so painfully present in my everyday life. I escaped to work and studies. Shame and the fear of being ashamed made me withdrawn. 
+##### I was not aware what a foetus that is scratched out during abortion looked like. Once I saw it! It was a staggering confrontation. Small body-parts scattered, legs, hands….! From this moment I avoided this practice as far as I could. It took me years until I could somewhat get over this confrontation. With great determination I tried to create some order in my life, like bird making a nest. At last, I was ready for a child! But the child did not come! Medical examinations, tests, treatments, etc.., but nothing. It reminded me of “Crime and punishment”. I had nightmares almost every night. I gave birth to my unborn child almost every night. I was a happy mother during the night, but as I woke up, depressive reality awaited me. I cannot have a child! During these years, I saw pregnant women, or mothers pushing their prams everywhere. The feeling of mourning and a sense of guilt were ever so painfully present in my everyday life. I escaped to work and studies. Shame and the fear of being ashamed made me withdrawn.
 
 #### **I was terrified of being asked “You do not have child? How come?”**
 
