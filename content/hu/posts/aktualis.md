@@ -1,6 +1,6 @@
 ---
 title: Aktuális
-date: 2022-04-08T22:00:00+00:00
+date: 2022-05-15T19:05:00+00:00
 
 ---
 ### **_Ne félj, nem ítéllek el!_**
@@ -9,17 +9,17 @@ date: 2022-04-08T22:00:00+00:00
 
 ![](/uploads/236119006_309811004265737_8324925701847262768_n.jpg)
 
-##### Megfogant benned egy kis élet és nem tudsz dönteni? – **_Van kiút!_** 
+##### Megfogant benned egy kis élet és nem tudsz dönteni? – **_Van kiút!_**
 
-##### Abortuszod volt és még mindig bánt? - **_Van rá orvosság_**_!_ 
+##### Abortuszod volt és még mindig bánt? - **_Van rá orvosság_**_!_
 
-##### Tanácsoltam, abortusz megoldás lesz az életére?- **_Van megbocsátás!_** 
+##### Tanácsoltam, abortusz megoldás lesz az életére?- **_Van megbocsátás!_**
 
-##### Vetélésed lelki fájdalma nem múlik? - **_Van segítség!_** 
+##### Vetélésed lelki fájdalma nem múlik? - **_Van segítség!_**
 
-##### Nem szülhetted meg "lombik-babádat"? - **_Ő is a gyermeked!_** 
+##### Nem szülhetted meg "lombik-babádat"? - **_Ő is a gyermeked!_**
 
-##### Lelkigyakorlaton terhedet Isten irgalmára bízhatod. 
+##### Lelkigyakorlaton terhedet Isten irgalmára bízhatod.
 
 ##### A részvételnek nem feltétele a rendszeres vallásgyakorlás.
 
