@@ -33,6 +33,6 @@ date: 2022-05-15T19:05:00+00:00
 
 ##### Mária és Ferenc
 
-![](/uploads/2022-04-28-05-1_mariabesnyo.png)
+[plakat-leanyfalu-2022-07-07-10.pdf](/uploads/plakat-leanyfalu-2022-07-07-10.pdf "plakat-leanyfalu-2022-07-07-10.pdf")
 
 [Jelentkezéshez kattints ide](https://docs.google.com/forms/d/e/1FAIpQLSelGcU33X9XmPpw_vsGDoO09rN9m8KhA7Ym6EwkP0HtbU1ppA/viewform)
