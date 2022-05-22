@@ -57,6 +57,6 @@ title = "Fürchte dich nicht, ich verurteile dich nicht!"
 
 ##### Webseite: [www.magzatlap.hu](http://www.magzatlap.hu/)
 
-##### E-mail: [nefeljnemitellekel@gmail.c](mailto:nefeljnemitellekel@gmail.com)om
+##### E-mail: [nefeljnemitellekel@gmail](mailto:nefeljnemitellekel@gmail.com).com
 
-> #####
+> ##### 
