@@ -1,5 +1,5 @@
 +++
-date = 2022-04-08T22:00:00Z
+date = 2001-05-20T13:55:00Z
 title = "Fürchte dich nicht, ich verurteile dich nicht!"
 
 +++
@@ -57,6 +57,6 @@ title = "Fürchte dich nicht, ich verurteile dich nicht!"
 
 ##### Webseite: [www.magzatlap.hu](http://www.magzatlap.hu/)
 
-##### E-mail: [nefeljnemitellekel@gmail](mailto:nefeljnemitellekel@gmail.com).com
+##### E-mail: [nefeljnemitellekel@gmail.com](mailto:nefeljnemitellekel@gmail.com)
 
 > ##### 
