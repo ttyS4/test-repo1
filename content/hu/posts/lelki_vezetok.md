@@ -7,7 +7,7 @@ date: 2022-05-15T13:48:48+00:00
 
 ##### KOVÁCSNÉ TREER MÁRIA, mentálhigiénés lelkigondozó, gyásztanácsadó
 
-##### Házasok, szülők, nagyszülők, és 30 éve az [Emmánuel Közösség](http://emmanuel.hu) tagjai vagyunk.
+##### Házasok, szülők, nagyszülők, és 30 éve az Emmánuel Közösség tagjai vagyunk.
 
 ![Mária és Feri](/images/maria-feri.jpg)
 
