@@ -1,6 +1,6 @@
 ---
 title: Kezdőlap
-description: kezdőlaphoz tartozó leírás szövege
+description: ''
 cascade:
   featured_image: "/images/hegyek.jpg"
 
