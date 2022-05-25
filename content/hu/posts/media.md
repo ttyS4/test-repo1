@@ -1,6 +1,7 @@
 ---
 title: Média
 date: 2022-05-15T11:31:26+00:00
+draft: true
 
 ---
 ![harang](harang_th.jpg)
