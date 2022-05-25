@@ -9,7 +9,7 @@ date: 2022-05-15T11:31:26+00:00
 
 ##### _Bízd rá magad.hu_
 
-"A két és fél nap után nemcsak odavitt sebeimet érzem gyógyultnak, és választ kaptam a jövőmet illető gyötrő kérdéseimre is, hanem lelkileg is sokkal gazdagabb lettem. Hiszen amellett, hogy hitem rengeteget mélyült, megismertem jó néhány olyan személyt, akikkel spontán sorsközösséget alkotva együtt sírtunk-nevettünk és gyógyultunk, akikért azóta is imádkozom, és akikkel azóta is tartom a kapcsolatot. Ahogy a Kovács házaspárral is. Ezúttal újságíróként kerestem meg őket, hogy a lelkigyakorlat hátteréről és személyes történetekről beszélgessünk."
+"A két és fél nap után nemcsak odavitt sebeimet érzem gyógyultnak, választ kaptam gyötrő kérdéseimre is. Megismertem jó néhány olyan személyt, akikkel spontán sorsközösséget alkotva együtt sírtunk-nevettünk, és akikkel azóta is tartom a kapcsolatot. Ahogy a Kovács házaspárral is."
 
 ##### [https://bizdramagad.hu/cikk/ne-felj-nem-itellek-el-a-magzatvesztok-lelkigyakorlata](https://bizdramagad.hu/cikk/ne-felj-nem-itellek-el-a-magzatvesztok-lelkigyakorlata)
 
