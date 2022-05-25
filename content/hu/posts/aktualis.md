@@ -23,8 +23,6 @@ date: 2022-05-25T19:00:00+00:00
 
 ##### A részvételnek nem feltétele a rendszeres vallásgyakorlás.
 
-##### [Jelentkezéshez kattints ide](https://docs.google.com/forms/d/e/1FAIpQLSelGcU33X9XmPpw_vsGDoO09rN9m8KhA7Ym6EwkP0HtbU1ppA/viewform)
-
 ##### Lehet, hogy eddig soha nem tudtál történeteddel szembenézni, fájdalmad magadba zártad.
 
 ## ![](/uploads/71144982_2350512884996632_4872907544277811200_n.jpg)                  Itt a kellő idő!
