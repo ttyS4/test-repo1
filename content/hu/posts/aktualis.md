@@ -23,6 +23,4 @@ date: 2022-05-25T19:00:00+00:00
 
 Jelentkezés
 
-Szórólapot feltölteni
-
 [plakat-leanyfalu-2022-07-07-10.pdf](/uploads/plakat-leanyfalu-2022-07-07-10.pdf "plakat-leanyfalu-2022-07-07-10.pdf")
