@@ -23,6 +23,6 @@ date: 2022-05-25T19:00:00+00:00
 
 ##### Legközelebbi lelkigyakorlatunk 2022.július 7-10 között lesz.
 
-##### **Információkért** kattints a linkre:
+##### **Információkért** kattints az alábbi linkre:
 
 [plakat-leanyfalu-2022-07-07-10.pdf](/uploads/plakat-leanyfalu-2022-07-07-10.pdf "plakat-leanyfalu-2022-07-07-10.pdf")
