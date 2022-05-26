@@ -23,6 +23,8 @@ date: 2022-05-15T19:26:19+00:00
 
 #### 💖Megélhetik azt a boldogító érzést, hogy Önök édesanyák és édesapák!
 
+#### 🔐Megkeresésüket bizalmasan kezeljük.
+
 #### ✔ A részvételnek _nem_ feltétele  a rendszeres vallásgyakorlat.
 
 #### ![](/uploads/20190414_170518.jpg)
