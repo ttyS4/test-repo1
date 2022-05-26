@@ -18,7 +18,7 @@ draft: true
 
 ##### _Magyar Hírlap_
 
-##### **Abortuszon átesett nőknek nyújtanak lelki segítséget**
+##### Abortuszon átesett nőknek nyújtanak lelki segítséget
 
 _„Nem azért éreznek bűntudatot a nők, mert a tízparancsolat ellen vétettek, hanem tudatára ébrednek annak: az emberi természetünkbe oltott erkölcsi törvény ellenére cselekedtek.”_ Lázin Miklós András
 
@@ -32,7 +32,7 @@ _„Nem azért éreznek bűntudatot a nők, mert a tízparancsolat ellen vétett
 
 ##### _Magyar Kurír_
 
-##### **„Ne félj, nem ítéllek el!” - az abortuszon átesettek lelkigyakorlatáról**
+##### „Ne félj, nem ítéllek el!” - az abortuszon átesettek lelkigyakorlatáról
 
 Gyakran éri az a kritika az Egyházat, hogy csak bűnösnek kiáltja ki az abortuszon átesett nőket, és nem segít nekik. Ez a kezdeményezés épp az ellenkezőjét mutatja.
 
@@ -40,6 +40,6 @@ Gyakran éri az a kritika az Egyházat, hogy csak bűnösnek kiáltja ki az abor
 
 ##### 🌼 _2012. szeptember 28_
 
-##### **AZ ÉLET: AJÁNDÉK” Nemzetközi Konferencia**
+##### AZ ÉLET: AJÁNDÉK” Nemzetközi Konferencia
 
 ##### [Videotórium](https://videotorium.hu/hu/recordings/5146/ne-felj-nem-itellek-el-kiut-az-abortusz-okozta-fajdalombol-kovacsne-treer-maria-lelki-gondozo-gyasztanacsado)
