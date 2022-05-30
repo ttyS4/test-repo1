@@ -1,4 +1,4 @@
-baseURL = "https://test-m.cstamas.hu/"
+baseURL = "http://magzatlap.hu/"
 languageCode = "hu-hu"
 title = "Ne félj, nem ítéllek el!"
 theme = "ananke"
