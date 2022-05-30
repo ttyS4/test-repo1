@@ -1,6 +1,6 @@
 +++
 date = 2022-05-15T19:03:00Z
-draft = true
+draft = false
 title = "Fear not, i won’t judge you!  – a way out of the pain of abortion"
 
 +++
