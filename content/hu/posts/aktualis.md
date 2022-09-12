@@ -1,6 +1,6 @@
 ---
 title: Aktuális
-date: 2022-05-25T19:00:00+00:00
+date: 2022-09-13T19:00:00+00:00
 
 ---
 ### **_Ne félj, nem ítéllek el!_**
@@ -21,8 +21,8 @@ date: 2022-05-25T19:00:00+00:00
 
 ##### Szeretettel hívunk team tagjainkkal együtt gyógyító kurzusunkra.
 
-##### 🔔 Legközelebbi lelkigyakorlatunk 2022.július 7-10 között lesz.
+##### 🔔 Legközelebbi lelkigyakorlatunk 2022.szeptember 29 - október 2 között lesz.
 
 ##### **Információkért** kattintson az alábbi linkre:
 
-[plakat-leanyfalu-2022-07-07-10.pdf](/uploads/plakat-leanyfalu-2022-07-07-10.pdf "plakat-leanyfalu-2022-07-07-10.pdf")
+[leanyfalu-2022-09-29-10-02.pdf](/uploads/leanyfalu-2022-09-29-10-02.pdf "leanyfalu-2022-09-29-10-02.pdf")
