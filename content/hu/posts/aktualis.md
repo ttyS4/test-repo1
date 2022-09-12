@@ -1,6 +1,6 @@
 ---
 title: Aktuális
-date: 2022-09-13T19:00:00.000+00:00
+date: 2022-09-13T19:00:00+00:00
 
 ---
 ### **_Ne félj, nem ítéllek el!_**
@@ -25,4 +25,4 @@ date: 2022-09-13T19:00:00.000+00:00
 
 ##### **Információkért** kattintson az alábbi linkre:
 
-[leanyfalu-2022-09-29-10-02.pdf](/uploads/leanyfalu-2022-09-29-10-02.pdf "leanyfalu-2022-09-29-10-02.pdf")
+[leanyfalu-2022-09-29-10-02.pdf](/uploads/leanyfalu-2022-09-29-10-02.pdf)
