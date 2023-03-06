@@ -3,6 +3,7 @@ title: Kezdőlap
 description: ''
 cascade:
   featured_image: "/images/hegyek.jpg"
+draft: true
 
 ---
 #### **ABORTUSZ, MAGZATVESZTÉS - lelki fájdalmak gyógyulása**
@@ -13,7 +14,7 @@ cascade:
 
 ##### **Abortusz, vetélés, a gyermek halva születése** , … mind olyan mély seb, ami akadályozhatja, hogy derűs, kiegyensúlyozott életet élj. Lehet, hogy friss, lehet, hogy már régen történt, de elő - előtör és nem találod a lelki békét.
 
-##### Segítő testvéreinkkel együtt Téged is szeretettel várunk:
+##### Segítő testvéreinkkel együtt Téged is szeretettel várunk
 
 ##### Mária & Ferenc
 
