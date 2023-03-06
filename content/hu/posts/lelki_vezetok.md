@@ -21,7 +21,7 @@ date: 2022-05-15T13:48:48.000+00:00
 
 ##### _Vetélés, magzati halálozás, "lombik" babák elvesztése_ után gyógyító, speciális gyászukat feldolgozó hétvégére várjuk az érintetteket.
 
-### MÁRIA RÁDIÓ 
+### RÁDIÓ MÁRIA
 
 ##### 2010 óta a Mária Rádió _„Ne félj, nem ítéllek le!”_ műsorának szerkesztését és vezetését végezzük.
 
