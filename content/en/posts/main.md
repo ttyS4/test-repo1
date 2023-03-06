@@ -1,85 +1,44 @@
 +++
 date = 2022-05-15T19:03:00Z
-draft = false
 title = "Fear not, i won’t judge you!  – a way out of the pain of abortion"
 
 +++
-## **Fear not, i won’t judge you!**
+## **Ne félj, nem ítéllek el!**
 
-## **– a way out of the pain of abortion**
+## **– kiút az abortusz fájdalmából**
 
-![](/uploads/236119006_309811004265737_8324925701847262768_n.jpg)
+#### **Az abortusz életellenes cselekedet**
 
-#### **Abortion is an act against life**
+##### Az élet szent. Az első pillanattól az utolsóig. Ha egyszer megfogant, az embrió egy személy. Ha hagyják őket élni, növekedni, formálódni, akkor egyénivé válnak. Akár tudja, akár nem, hogy az abortusz bűn, lelki és fizikai következményekkel jár. Szégyen, bűntudat, belső szomorúság merül fel, akár vallásos, akár nem.
 
-##### Life is sacred. From the first moment to the last. Once it’s conceived, an embryo is a person. If they are allowed to live, to grow, to shape, they become individuals. Whether or not you know abortion is a sin, you will suffer spiritual and physical consequences. Shame, guilt, inner sadness arise whether the person is religious or not.
+#### **Mik a jellegzetes tünetek az abortusz után?**
 
-#### **What are the characteristic symptoms after abortion?**
+##### Az abortusz utáni tünetek hasonlóak a gyászba ragadt személy tüneteihez. A legfájdalmasabb az, hogy történetesen a szenvedő személy okozta a problémát.
 
-##### Post abortion symptoms are similar to the symptoms of someone stuck in mourning. The most painful part is that the suffering person happens to be the one who caused the problem.
+##### A tünetek sokfélék lehetnek: szorongás, harag, önvád, alacsony önértékelés, vetélés, meddőség, álmatlanság, függőség (kábítószer- vagy alkoholfüggőség), öngyilkossági hajlam. Az abortusz után a kapcsolatok 70%-a véget ér.
 
-##### Symptoms can be various: anxiety, anger, self-accusation, low self-esteem, miscarriage, infertility, insomnia, addiction (drug or alcohol), and suicidal tendencies. After abortion, 70% of relationships end.
+##### Lehet, hogy évtizedekig nem hajlandó hallgatni a szíved hangjára, de végül valami megítja azt a traumát, amelyről azt gondolod, hogy a menopauzát elfelejtették: terhesség, szülés, vetélés, gyász, válás, betegség vagy baleset. Ekkor a fájdalom elemi erővel tör ki. A nőben feltámad a harag, a vádaskodás mindenki iránt, aki rábeszélte, aki nem neki a szükségében. Fáj, hogy senki nem mondta: „ne csináld!” Gyakran Istent is hibáztatják: „Ha ő igazán szeret, miért hagyta, hogy ez megtörténjen velem?”
 
-#### **The cure is the gracious love of Jesus**
+![https://cdn.forestry.io/res2/0WZ3haFi3PrBCcNYkZpmtAaLCTED2SYqaocylqMO5Y8/fit/512/512/sm/0/aHR0cHM6Ly9hcHAu/Zm9yZXN0cnkuaW8v/cmFpbHMvYWN0aXZl/X3N0b3JhZ2UvYmxv/YnMvZXlKZmNtRnBi/SE1pT25zaWJXVnpj/MkZuWlNJNklrSkJh/SEJDUzFFNGNtaE5Q/U0lzSW1WNGNDSTZi/blZzYkN3aWNIVnlJ/am9pWW14dllsOXBa/Q0o5ZlE9PS0tYjA5/NmJiOGFhOGU4NmI1/ MmRmZWI5YzZlNzgz/YzY5ZjcwNDllODAy/OS9HWU9SX0FQUl9w/bGFrYXRCNV9xcmtv/ZC5wbmc](https://cdn.forestry.io/res2/0WZ3haFi3PrBCcNYkZpmtAaLCTED2SYqaocylqMO5Y8/fit/512/512/sm/0/aHR0cHM6Ly9hcHAu/Zm9yZXN0cnkuaW8v/cmFpbHMvYWN0aXZl/X3N0b3JhZ2UvYmxv/YnMvZXlKZmNtRnBi/SE1pT25zaWJXVnpj/MkZuWlNJNklrSkJh/SEJDUzFFNGNtaE5Q/U0lzSW1WNGNDSTZi/blZzYkN3aWNIVnlJ/am9pWW14dllsOXBa/Q0o5ZlE9PS0tYjA5/NmJiOGFhOGU4NmI1/MmRmZWI5YzZlNzgz/YzY5ZjcwNDllODAy/OS9HWU9SX0FQUl9w/bGFrYXRCNV9xcmtv/ZC5wbmc)
 
-##### You may refuse to listen to the sound of your heart for decades, but eventually something will renew the trauma you think you have forgotten: pregnancy, childbirth, miscarriage, menopause, mourning, divorce, illness or an accident. Then, pain will erupt with an elemental force. Anger, blame will rise in the woman towards everyone who talked her into it, who did not help her in her need. It hurts that no one said: „don’t do it!” They often blame God too: „If he really loves me, why did he let this happen to me?”
+##### _Gyakorlatunk II. János Pál pápa enciklikája, az Evangelium Vitae (IV. fejezet, 99. pont, 3. bekezdés) alapján készült, amely a pápa az abortuszban érintettekhez szól._
+
+#### **A hétvégék gyümölcsei:**
+
+##### A résztvevők megtapasztalták, hogy lehetséges a gyógyulás, hogy egy ilyen szégyenletes esemény után is újra lehet kezdeni, amiről beszélni sem mertek. Ha békét találsz Istennel, a körülötted és benned lévő emberekkel a spirituális megújuláshoz vezethet. Részben ez az oka annak, hogy nem vallásos emberek is részt vehetnek.
+
+#### **A résztvevők vallomásai:**
+
+##### 🎶"Abortuszom után nem tudtam megvizsgálni a főiskolát. Feladtam. Depresszióval kezeltek, és nem tudtam abbahagyni, hogy magamat hibáztassam. Most a hétvége után jelentkezem másik iskolába. Alig várom. Nagyon várom, hogy nem fogok kudarcot vallani."
+
+##### 🩺„Úgy hittem, nem vagyok méltó arra, hogy a szakmámban dolgozzak – asszisztensként. Ma orvos vagyok, segítek másoknak.”
+
+##### 🌼 „Először nem tudtam megmondani a lányaimnak, hogy lehettek más testvéreik is. Féltem, hogy megvetnek, elítélnek. Megkértem őket, hogy ne kövessék el ugyanazt a hibát. Ha bajba kerülnének, én ott leszek. Nem mondhatom, hogy büszkék voltak rám, de a kapcsolatunk őszintébb lett.”
+
+##### ⛪Negyven évesen elkezdtem bibliaórákra járni, és ott volt az elsőáldozásom. "
+
+##### 💕“Megtaláltam Mr. Right-ot, és egy templomban házasodtunk össze. Megszűnt a csalódottságom és az érzésem, hogy semmi sem számít. A házasságunk nem hasonlít a múltbeli bizonytalan kapcsolataimhoz. Egymásra támaszkodhatunk. Ettől biztonságban érzem magam. "
+
+##### 👍“Két tinédzser fiúm van két különböző kapcsolatból. A jelenlegi párommal 5 éve vagyunk együtt, de hiába próbálkoztunk, nem sikerült babánk. Úgy éreztem, az univerzum megbüntet azokért a babákért, akikről fiatalabb koromban lemondtam. A hétvége után, 42 évesen megfogant a lányunk. Nagyon boldogok vagyunk! "gfogant a lányunk. Nagyon boldogok vagyunk!"
 
 ##### ![](/uploads/2008julius-116.jpg)
-
-#### **Fruits of the weekends:**
-
-##### Participants experienced that healing is possible, that they can start over even after such a shameful event which they did not even dare to talk about. Finding peace with God, with the people around you and within you can lead to a spiritual revival. This is partly the reason why people who are not religious can also attend.
-
-#### **Testimonies from participants:**
-
-##### 🎶“After my abortion, I was unable to graduate from college. I gave up. I was treated with depression and I couldn’t stop blaming myself. Now, after the weekend, I applied to another school. I’m looking forward to it. I really hope that this time I won’t fail.”
-
-##### 🩺“I believed I wasn’t worthy to work in my profession – as a medical assistant. Today, I am a doctor, I help other people.”
-
-##### 🌼  “At first I couldn’t tell my daughters they could have had other siblings. I was afraid they would despise me, judge me. I asked them to never make the same mistake. Should they ever be in trouble, I’ll be there. I can’t say they were proud of me, but our relationship became more honest.“
-
-##### ⛪“At the age of forty, I started attending Bible classes and had my First Communion. “
-
-##### 💕“I found Mr. Right and we got married in a church. My frustration and the feeling that nothing matters both stopped. Our marriage is nothing like my past insecure relationships. We can lean on each other. It makes me feel safe. “
-
-##### 👍“I have two teenage boys from two different relationships. My current partner and I’ve been together for 5 years, but no matter how hard we tried, we could not have a baby. I felt like the universe was punishing me for the babies I had given up when I was younger. After the weekend, at the age of 42, our daughter was conceived. We are so happy! “
-
-![](/uploads/gyertyatarto-1.jpg)
-
-##### _Our retreat is based on Evangelium Vitae, the encyclical of Pope Saint John Paul II (Chapter IV. Point 99. Paragraph 3.), in which the Pope speaks to those affected by abortion._
-
-##### Healing, re-evangelizing weekend of mission by the Hungarian Emmanuel Community
-
-##### The leaders of this retreat are members of the EMMANUEL COMMUNITY Fraternity:
-
-##### Mrs. Mária TREER KOVÁCSNÉ mental health spiritual counsellor
-
-##### Mr. Ferenc KOVÁCS permanent deacon
-
-##### Website: www.magzatlap.hu
-
-##### E-mail address: nefeljnemitellekel@gmail.com
-
-## V.Maria’s Testimony
-
-##### For a woman, the tragedy is that whether she is aware that abortion is a sin or not, the consequences make her life bitter.
-
-##### ![](/uploads/125381237_3383106508403926_3021977328333782542_n.jpg)
-
-##### When the “father” was informed about my pregnancy, (I was 18 years old), he took me to a hospital, talked to a doctor and left. I have never seen him again. I felt miserable and paralyzed by shame. Dark despair and hopelessness completely overwhelmed me. How to go on…? I felt lonely, in pain, and painfully lonely in spiritual and physical emptiness. It is a bad and painful memory, I had no other choice. All I knew was that I never wanted to live through something like this again.
-
-#### **I continued my studies in medicine.**
-
-##### I was not aware what a foetus that is scratched out during abortion looked like. Once I saw it! It was a staggering confrontation. Small body-parts scattered, legs, hands….! From this moment I avoided this practice as far as I could. It took me years until I could somewhat get over this confrontation. With great determination I tried to create some order in my life, like bird making a nest. At last, I was ready for a child! But the child did not come! Medical examinations, tests, treatments, etc.., but nothing. It reminded me of “Crime and punishment”. I had nightmares almost every night. I gave birth to my unborn child almost every night. I was a happy mother during the night, but as I woke up, depressive reality awaited me. I cannot have a child! During these years, I saw pregnant women, or mothers pushing their prams everywhere. The feeling of mourning and a sense of guilt were ever so painfully present in my everyday life. I escaped to work and studies. Shame and the fear of being ashamed made me withdrawn.
-
-#### **I was terrified of being asked “You do not have child? How come?”**
-
-##### It is God who calls the person out of this state of mind which is created by our sense of guilt. There is nothing you can do about what has already happened. But God is great enough to turn something bad to very good. I was raised Catholic but I still carried this burden for decades.
-
-##### I was looking for my sphere of life and having found it, at last I managed to put down my burden in a long, friendly conversation.
-
-#### **I have gained a new life: marriage, two daughters, two grandchildren – through my husband – whom I love as my own.**
-
-##### I felt I could finally get over what has happened and I was healed. I later found out that I was not yet fully healed. I got in contact with Kovacs – Treer couple, who host the radio show entitled “Fear not, I won’t judge you”. I took part in a retreat after which I was finally fully at peace.
-
-![](/uploads/121653311_3296054067109171_2091319764990543453_n.jpg)
