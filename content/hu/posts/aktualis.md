@@ -1,28 +1,18 @@
 ---
 title: Aktuális
-date: 2022-09-13T19:00:00+00:00
+date: 2022-09-13T19:00:00.000+00:00
 
 ---
 ### **_Ne félj, nem ítéllek el!_**
 
 ### **_Ne sírj, ne bánkódj!_**
 
-![](/uploads/236119006_309811004265737_8324925701847262768_n.jpg)
+##### 😢 Abortuszod volt és még mindig bánt? - Van rá orvosság 💕 Vetélésed lelki fájdalma nem múlik? - Van segítség!
 
-##### 😢 Abortuszod volt és még mindig bánt? - **_Van rá orvosság_**_!_
-
-##### 💕 Vetélésed lelki fájdalma nem múlik? - **_Van segítség!_**
-
-##### 🌻 Nem szülhetted meg "lombik-babádat"? - **_Ő is a gyermeked!_**
+##### 🌻 Nem szülted meg "lombik-babádat" ? - Ő gyermeked!
 
 ##### ⌚ Lehet, hogy eddig soha nem tudtál történeteddel szembenézni, fájdalmad magadba zártad.
 
-### ![](/uploads/71144982_2350512884996632_4872907544277811200_n.jpg)                  Itt a kellő idő!
-
 ##### Szeretettel hívunk team tagjainkkal együtt gyógyító kurzusunkra.
 
-##### 🔔 Legközelebbi lelkigyakorlatunk 2022.szeptember 29 - október 2 között lesz.
-
-##### **Információkért** kattintson az alábbi linkre:
-
-[leanyfalu-2022-09-29-10-02.pdf](/uploads/leanyfalu-2022-09-29-10-02.pdf)
+![](https://cdn.forestry.io/res2/0WZ3haFi3PrBCcNYkZpmtAaLCTED2SYqaocylqMO5Y8/fit/512/512/sm/0/aHR0cHM6Ly9hcHAu/Zm9yZXN0cnkuaW8v/cmFpbHMvYWN0aXZl/X3N0b3JhZ2UvYmxv/YnMvZXlKZmNtRnBi/SE1pT25zaWJXVnpj/MkZuWlNJNklrSkJh/SEJDUzFFNGNtaE5Q/U0lzSW1WNGNDSTZi/blZzYkN3aWNIVnlJ/am9pWW14dllsOXBa/Q0o5ZlE9PS0tYjA5/NmJiOGFhOGU4NmI1/MmRmZWI5YzZlNzgz/YzY5ZjcwNDllODAy/OS9HWU9SX0FQUl9w/bGFrYXRCNV9xcmtv/ZC5wbmc)
