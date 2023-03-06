@@ -3,9 +3,9 @@ title: Aktuális
 date: 2022-09-13T19:00:00.000+00:00
 
 ---
-### **_Ne félj, nem ítéllek el!_**
+### _Ne félj, nem ítéllek el!_
 
-### **_Ne sírj, ne bánkódj!_**
+### _Ne sírj, ne bánkódj!_
 
 ##### 
 
