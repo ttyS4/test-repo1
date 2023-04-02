@@ -1,6 +1,6 @@
 ---
 title: Média
-date: 2022-05-15T11:31:26.000+00:00
+date: 2023-04-02T11:31:26+00:00
 
 ---
 ![harang](harang_th.jpg)
@@ -33,12 +33,12 @@ _„Nem azért éreznek bűntudatot a nők, mert a tízparancsolat ellen vétett
 
 ##### „Ne félj, nem ítéllek el!” - az abortuszon átesettek lelkigyakorlatáról
 
-Gyakran éri az a kritika az Egyházat, hogy csak bűnösnek kiáltja ki az abortuszon átesett nőket, és nem segít nekik. Ez a kezdeményezés épp az ellenkezőjét mutatja.
+Gyakran éri az a kritika az Egyházat, hogy csak bűnösnek kiáltja ki az abortuszon átesett nőket, és nem segít nekik. Ez a kezdeményezés épp az előzőjét mutatja.
 
 ##### [https://www.magyarkurir.hu/hirek/ne-felj-nem-itellek-el-az-abortuszon-atesettek-lelkigyakorlatarol](https://www.magyarkurir.hu/hirek/ne-felj-nem-itellek-el-az-abortuszon-atesettek-lelkigyakorlatarol)
 
 ##### 🌼 _2012. szeptember 28_
 
-##### AZ ÉLET: AJÁNDÉK” Nemzetközi Konferencia
+##### „AZ ÉLET: AJÁNDÉK” Nemzetközi Konferencia
 
 ##### [Videotórium](https://videotorium.hu/hu/recordings/5146/ne-felj-nem-itellek-el-kiut-az-abortusz-okozta-fajdalombol-kovacsne-treer-maria-lelki-gondozo-gyasztanacsado)
