@@ -6,11 +6,7 @@ cascade:
 draft: true
 
 ---
-#### **ABORTUSZ, MAGZATVESZTÉS - lelki fájdalmak gyógyulása**
-
-### _„Ne félj, nem ítéllek el!”_ hétvége
-
-#### ![](https://cdn.forestry.io/res2/0WZ3haFi3PrBCcNYkZpmtAaLCTED2SYqaocylqMO5Y8/fit/512/512/sm/0/aHR0cHM6Ly9hcHAu/Zm9yZXN0cnkuaW8v/cmFpbHMvYWN0aXZl/X3N0b3JhZ2UvYmxv/YnMvZXlKZmNtRnBi/SE1pT25zaWJXVnpj/MkZuWlNJNklrSkJh/SEJDUzFFNGNtaE5Q/U0lzSW1WNGNDSTZi/blZzYkN3aWNIVnlJ/am9pWW14dllsOXBa/Q0o5ZlE9PS0tYjA5/NmJiOGFhOGU4NmI1/MmRmZWI5YzZlNzgz/YzY5ZjcwNDllODAy/OS9HWU9SX0FQUl9w/bGFrYXRCNV9xcmtv/ZC5wbmc)
+![](https://cdn.forestry.io/res2/72Qw7llQWGbq5mGxSIOZfm-GbpsTiD66CjEcXBx_Q1A/fit/512/512/sm/0/aHR0cHM6Ly9hcHAu/Zm9yZXN0cnkuaW8v/cmFpbHMvYWN0aXZl/X3N0b3JhZ2UvYmxv/YnMvZXlKZmNtRnBi/SE1pT25zaWJXVnpj/MkZuWlNJNklrSkJh/SEJDUVZrNGNtaE5Q/U0lzSW1WNGNDSTZi/blZzYkN3aWNIVnlJ/am9pWW14dllsOXBa/Q0o5ZlE9PS0tYTdi/MWIwZWMzOTM5NDFm/OGJjMmI0YmU1ZTQx/YzcyYWJhZDFiOTg0/My9BJTIwc3olQzMl/QUR2JTIwaGFuZ2ol/QzMlQTF0JTIwKDIp/LnBuZw)
 
 ##### **Abortusz, vetélés, a gyermek halva születése** , … mind olyan mély seb, ami akadályozhatja, hogy derűs, kiegyensúlyozott életet élj. Lehet, hogy friss, lehet, hogy már régen történt, de elő - előtör és nem találod a lelki békét.
 
@@ -18,4 +14,8 @@ draft: true
 
 ##### Mária & Ferenc
 
-#### 
+##### **Jelentkezés:**
+
+##### [**nefeljnemitellekel@gmail.com**](mailto:nefeljnemitellekel@gmail.com)
+
+##### **+36208232201 (Mária)**
