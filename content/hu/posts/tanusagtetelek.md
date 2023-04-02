@@ -1,5 +1,5 @@
 +++
-date = 2022-05-14T22:00:00Z
+date = 2023-04-01T22:00:00Z
 title = "Tanúságtételek"
 
 +++
@@ -54,9 +54,7 @@ _Ha azt mondom, hogy első, akkor lesz itt még több is……._
 
 42 éves korában „ _baba-projekt_ " kudarcok után megszületett NIKI vágyott kislánya.
 
-Szeretettel ajánljuk, hallgasd meg Niki Mária Rádióban elhangzott megrendítő vallomását. (38 százalék)
-
-Kattints a linkre:
+Szeretettel ajánljuk, hallgasd meg Niki Mária Rádióban elhangzott megrendítő vallomását. (38 százalé
 
 [https://hangtar.mariaradio.hu/media/ne_felj_nem_itellek_el/2021.06.01_21-05-ne_felj_nem_itellek_el.mp3](https://hangtar.mariaradio.hu/media/ne_felj_nem_itellek_el/2021.06.01_21-05-ne_felj_nem_itellek_el.mp3 "https://hangtar.mariaradio.hu/media/ne_felj_nem_itellek_el/2021.06.01_21-05-ne_felj_nem_itellek_el.mp3")
 
