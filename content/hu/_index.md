@@ -14,8 +14,8 @@ draft: true
 
 ##### Mária & Ferenc
 
-##### **Jelentkezés:**
+Jelentkezés:
 
-##### [**nefeljnemitellekel@gmail.com**](mailto:nefeljnemitellekel@gmail.com)
+[nefeljnemitellekel@gmail.com](mailto:nefeljnemitellekel@gmail.com)
 
-##### **+36208232201 (Mária)**
+\+36208232201 (Mária)
