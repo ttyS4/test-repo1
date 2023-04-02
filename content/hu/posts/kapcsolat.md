@@ -1,6 +1,6 @@
 ---
 title: Kapcsolat
-date: 2022-05-15T19:05:48.000+00:00
+date: 2023-04-02T19:05:48+00:00
 
 ---
 ##### Kedves Érdeklődő Testvérünk!
